@@ -56,7 +56,7 @@
 
 ㅤㅤㅤ— Pode começar pelo nome dele, pelo nome do senhor ou pelo nome da mãe dela. Eu tenho a tarde livre. E, pelo visto, o senhor também.
 
-https://media1.tenor.com/m/l16XJnThzpQAAAAd/lovie-simone-zora-greenleaf.gif
+![Lovie Simone — Asha Iansan, cabelo trançado](https://media1.tenor.com/m/l16XJnThzpQAAAAd/lovie-simone-zora-greenleaf.gif)
 
 <!— Alternativas testadas —>
 <!— Tumblr (gif pack Greenleaf S1E1) — servidor do Tumblr retorna 403 para hotlink: https://64.media.tumblr.com/ffed8c4139ed1612915432466f87301b/tumblr_ovq8x6S1tk1uvoc6xgo1_540.gif —>
