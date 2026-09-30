@@ -486,3 +486,22 @@ Ele balançou a cabeça com irritação diante da falação sem fim da garota. J
 ㅤㅤㅤObservou os arredores. Apesar de aquela estrutura ser parte de sua herança e de ele estar curioso para entender como era sua vida naquele castelo, trazia preocupações bem maiores no momento, principalmente ao encarar uma pessoa extremamente ferida em seu grupo que, com total certeza, não conseguiria lutar com todas as forças. Contra o gosto, rasgou o resto que lhe restava da camisa e começou a envolver as feridas de Amália. Aos poucos, começava a compreender que o ódio não era a solução imediata para os seus problemas; contudo, isso nem de longe significava que a perdoaria pelo que a família dela havia feito.
 ㅤㅤㅤAssim que terminou os curativos improvisados, Nicholas se abaixou com uma paciência, puxando Amália com firmeza e a acomodando com cuidado sobre as suas costas. Ajustou o peso dela contra o próprio corpo, garantindo que a apoiava bem antes de dar os primeiros passos em direção a um dos corredores mais escuros e ramificados do castelo.
 ㅤㅤㅤ⸻ Eu vou procurar algo que possa nos ajudar no Castelo, não sei vocês mas eu sugiro nos escondermos até termos um plano concreto.
+
+
+ㅤ ㅤㅤ ◜𝐂𝐚𝐞𝐥 𝐓𝐫𝐢𝐦𝐞𝐠𝐢𝐬𝐭𝐮𝐬◞
+ㅤ ㅤㅤ ◜𝑻𝒆𝒄𝒆𝒕𝒓𝒊𝒛𝒆𝒔 ◞
+༺━━━━━━━༺◜༼˖𓄃‧.༽◞༻━━━━━━━༻
+ㅤ ㅤㅤ ◜𓄃◞ Meus últimos esforços foram o bastante para garantir que conseguisse chegar ao castelo, mas não era o suficiente para aplacar tudo que se abatia sobre meu corpo e mente. De alguma forma estava conectado a uma persona em sofrimento, alguém cujo poder estava ligado as Feras de Ferro. Sua dor e sua insanidade também eram minhas, e um braço quebrado parecia não significar nada perante o que estava sendo compartilhado entre nós dois.
+ㅤㅤㅤ Meu irmão havia sido partido ao meio, mas estava vivo e ainda assim não conseguia voltar minha atenção para protege-lo. A dor era tão intensa que precisava morder minha própria mão ao ponto de sangrar, para que conseguisse raciocinar por um instante sequer. Meus olhos contemplavam as feras que estariam chegando, pequenas e ainda assim mortais o bastante para nos matar. As pernas cediam e me esforçava para me arrastar no solo gélido, mas não conseguia reconhecer aquele castelo como lar.
+ㅤㅤㅤ — Precisamos de uma...saída, não temos como deter...as feras. Nicholas...eu não vou aguentar muito tempo... – a voz fraca já se perdia no ar gélido, enquanto os dentes rangiam de dor.
+ㅤㅤㅤ O desespero gritava e em um ato de puro instinto, chocava minha cabeça contra o solo abrindo um corte em minha testa e deixando o sangue escorrer. Magia não era algo que possuía, mas o sangue tende a ser um condutor, e por intermédio do ícor buscava explorar a conexão com Aiden para o localizar. Não sabia o que poderia fazer, apenas sentir onde ele estava e buscar alguma paz para sua mente.
+༺━━━━━━━༺◜༼˖𓄃‧.༽◞༻━━━━━━━༻
+
+
+▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
+◜✦ 𝐀𝐋𝐄𝐈𝐒𝐓𝐄𝐑 "𝐀𝐒𝐓𝐄𝐑" 𝐁𝐄𝐋𝐒𝐄𝐑𝐈𝐎𝐍 ☽̖́
+▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
+Aster pousou com leveza no solo gélido do salão assim que os portões ancestrais se fecharam com um baque ressonante. A aura das asas emplumadas dissipou-se devagar enquanto ele soltava o ar, sentindo o peito ainda vibrar com aquele calor azulado. Ele ajeitou o casaco e deu um passo à frente, mas a visão daquela sombra serpenteando rápido pelas rachaduras da parede fez seus músculos tensarem no ato.
+— Galera... fiquem espertos — disse Aster, a voz baixa e cautelosa, mantendo o olhar fixo no ponto exato onde a criatura havia sumido. — Tem uma cobra negra gigante rondando por aqui. Essa desgraça tá se esgueirando pelas manchas de podridão na parede, então não deem bobeira.
+Sem esperar por uma resposta e mantendo os sentidos em alerta máximo, Aster começou a andar pelo salão colossal. Seus passos eram silenciosos, pisando com cuidado sobre o giz corroído e os escombros do teto desmoronado. Ele varria com os olhos cada coluna rachada, os arcos góticos em ruínas e as sombras densas que se acumulavam nos cantos mais altos, atento a qualquer ruído de escamas roçando na pedra.
+Ele ergueu ligeiramente a mão enfaixada, mantendo o fluxo estígio pronto para responder ao menor sinal de ataque. Explorar aquele lugar devastado pelo tempo parecia a única opção para entender onde tinham se metido, mas Aster não tinha a menor intenção de ser pego de surpresa por seja lá o que estivesse espreitando na penumbra do castelo.
