@@ -12,3 +12,9 @@
 ㅤㅤㅤ⸻ 𝐒𝐞𝐣𝐚𝐦 𝐛𝐞𝐦-𝐯𝐢𝐧𝐝𝐨𝐬, 𝐚𝐥𝐮𝐧𝐨𝐬. 𝐀 𝐚𝐥𝐪𝐮𝐢𝐦𝐢𝐚 𝐧𝐚̃𝐨 𝐞́ 𝐚𝐩𝐞𝐧𝐚𝐬 𝐚 𝐚𝐫𝐭𝐞 𝐝𝐞 𝐦𝐢𝐬𝐭𝐮𝐫𝐚𝐫 𝐞𝐥𝐞𝐦𝐞𝐧𝐭𝐨𝐬, 𝐦𝐚𝐬 𝐚 𝐜𝐢𝐞̂𝐧𝐜𝐢𝐚 𝐝𝐞 𝐜𝐨𝐧𝐝𝐮𝐳𝐢𝐫, 𝐥𝐚𝐩𝐢𝐝𝐚𝐫 𝐞 𝐞𝐱𝐩𝐚𝐧𝐝𝐢𝐫 𝐚 𝐩𝐫𝐨́𝐩𝐫𝐢𝐚 𝐞𝐬𝐬𝐞̂𝐧𝐜𝐢𝐚. 𝐎 𝐨𝐛𝐣𝐞𝐭𝐢𝐯𝐨 𝐝𝐞𝐬𝐭𝐚 𝐚𝐮𝐥𝐚 𝐞́ 𝐞𝐬𝐭𝐢𝐦𝐮𝐥𝐚𝐫 𝐨 𝐝𝐞𝐬𝐞𝐧𝐯𝐨𝐥𝐯𝐢𝐦𝐞𝐧𝐭𝐨 𝐝𝐨𝐬 𝐬𝐞𝐮𝐬 𝐩𝐨𝐝𝐞𝐫𝐞𝐬 𝐝𝐚 𝐟𝐨𝐫𝐦𝐚 𝐦𝐚𝐢𝐬 𝐩𝐮𝐫𝐚 𝐞 𝐞𝐟𝐢𝐜𝐢𝐞𝐧𝐭𝐞, 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐧𝐝𝐨 𝐚 𝐜𝐚𝐧𝐚𝐥𝐢𝐳𝐚𝐫 𝐜𝐚𝐝𝐚 𝐠𝐨𝐭𝐚 𝐝𝐞 𝐞𝐧𝐞𝐫𝐠𝐢𝐚 𝐬𝐞𝐦 𝐝𝐞𝐬𝐩𝐞𝐫𝐝𝛊́𝐜𝐢𝐨𝐬 𝐨𝐮 𝐡𝐞𝐬𝐢𝐭𝐚𝐜̧𝐚̃𝐨.
 ㅤㅤO professor fez uma pausa breve, percorrendo com o olhar firme cada um dos rostos presentes, antes de concluir com solenidade.
 ㅤㅤㅤ⸻ 𝐄𝐬𝐭𝐞𝐣𝐚𝐦 𝐚𝐯𝐢𝐬𝐚𝐝𝐨𝐬: 𝐧𝐞𝐬𝐭𝐞 𝐩𝐚́𝐭𝐢𝐨, 𝐭𝐢́𝐭𝐮𝐥𝐨𝐬 𝐞 𝐡𝐢𝐞𝐫𝐚𝐫𝐪𝐮𝐢𝐚𝐬 𝐧𝐚̃𝐨 𝐭𝐞̂𝐦 𝐩𝐞𝐬𝐨. 𝐕𝐨𝐜𝐞̂𝐬 𝐬𝐞𝐫𝐚̃𝐨 𝐚𝐯𝐚𝐥𝐢𝐚𝐝𝐨𝐬 𝐮́𝐧𝐢𝐜𝐚 𝐞 𝐞𝐱𝐜𝐥𝐮𝐬𝐢𝐯𝐚𝐦𝐞𝐧𝐭𝐞 𝐩𝐞𝐥𝐚 𝐬𝐮𝐚 𝐜𝐚𝐩𝐚𝐜𝐢𝐝𝐚𝐝𝐞, 𝐜𝐨𝐧𝐭𝐫𝐨𝐥𝐞 & 𝐩𝐨𝐭𝐞𝐧𝐜𝐢𝐚𝐥, 𝐢𝐧𝐝𝐞𝐩𝐞𝐧𝐝𝐞𝐧𝐭𝐞𝐦𝐞𝐧𝐭𝐞 𝐝𝐞 𝐬𝐞𝐫𝐞𝐦 𝐍𝐞𝐨́𝐟𝐢𝐭𝐨𝐬 𝐨𝐮 𝐄𝐦𝐚𝐧𝐚𝐝𝐨𝐫𝐞𝐬
+
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤAmália encostou as costas na parede fria do pátio e deixou os olhos varrerem as saídas antes que o burburinho morresse de vez, posicionando-se longe dos círculos de prata mas perto o bastante para ler cada traço. O céu cor de chumbo trabalhava a seu favor, engolindo as sombras alheias e tornando a ausência da sua quase imperceptível sob a luz baça. O cheiro de enxofre chegou antes da poeira dos pigmentos, lembrando-a de que toda linha desenhada no chão é um convite silencioso ao fracasso. Ela cruzou o olhar com o vigia distante por um instante — um caçador reconhecendo outro — e voltou a atenção ao centro, onde o mestre ajustava as luvas com a calma de quem já sabe o que vai queimar.
+ㅤㅤㅤ
+ㅤㅤㅤQuando o professor declarou que títulos não valeriam nada ali, os dedos dela se fecharam e abriram num suspiro, único sinal de quem passou a vida sendo medida por tudo menos pelo próprio valor. A aranha sob o esterno agitou-se com a pulsação alquímica, mas Amália apenas ajeitou o tecido sobre o peito e guardou os fios em silêncio, sabendo que poder não revelado é poder que ninguém sabe enfrentar. Deu então meio passo até a borda da zona de segurança e cravou os olhos nas luvas do mestre.
