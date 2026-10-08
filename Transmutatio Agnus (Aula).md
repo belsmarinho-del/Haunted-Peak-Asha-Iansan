@@ -44,3 +44,40 @@
 ㅤㅤ⸻ Não entendi bem sua pergunta, pra ser sincero. Mas, o que fazemos aqui é compreender melhor com o que lutamos.
 ㅤㅤEm seguida, o olhar de Vasiliev desviou-se para encarar Percival, o Príncipe das Bruxas. Contemplando o jovem com uma postura visivelmente mais relaxada, um sorriso mais gentil desarmou a rigidez de seu semblante enquanto ele dava um passo à frente para tranquilizá-lo.
 ㅤㅤ⸻ Não irá te ferir, querido, não se preocupe. A Podridão é a corrupção da força do Outono, o Sabbat da Decadência. Nós usamos a alquimia para estudar as forças das outras Três Estações. Cada Monarca de Sabbat possuía um diferente elemento, um presente celestial que eles criaram a partir da essência do Sol, e, com isso, nós podemos chegar até a Magnum Opis da alquimia; a Pedra Filosofal. Bem, claro que isso não é facilmente replicavel, mas, um emanador chamado Nicolau conseguiu uma vez. Infelizmente ele e a Pedra Filosofal foram destruídos pela Podridão... Enfim! Podemos começar com a atividade?
+
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤㅤNão deixou o meio-resumo do professor passar como resposta: arquivou os nomes com o rosto imóvel — Podridão, Pedra Filosofal, o tal Nicolau que a conseguiu e virou cinza —, do jeito que se arquivava mapa de mina. Foi então que o filamento dourado da matriz tocou a ponta da sua bota, e ela olhou para baixo uma única vez: o círculo sob os seus pés aceso, ligando-a ao pátio inteiro, ao ponto focal da bancada, a cada aluno em volta. Não recuou para fora do traçado; fez o contrário — assentou o peso no centro exato do próprio círculo e deixou a linha de luz subir pela barra da calça até a altura do joelho, medindo o que a matriz media dela. E então controlou: respiração curta, pulso lento, os fios e os corvos guardados tão fundo que o brilho ao redor dos seus dedos perdeu o nervo e virou um veio calmo, contínuo, sem desperdício — a leitura de quem mostra disciplina, não estoque. A aranha quis se virar para o pulso alquímico sob o esterno; ela ajeitou a alça por cima do peito e a mantede quieta, como quem fecha uma torneira.
+ㅤㅤㅤㅤ
+ㅤㅤㅤㅤQuando o mestre ajustou os óculos e perguntou se podiam começar, Amália já estava em posição de trabalho: meio passo à frente dentro do próprio círculo, ombros soltos, as mãos abertas e à vista, longe do cinto e perto do ar. Os olhos saíram das luvas dele e fizeram a ronda da bancada — almofariz, provetas, o frasco lacrado de mercúrio filosófico, a poeira de enxofre esperando o primeiro erro de alguém — e voltaram para o ponto focal onde a palma dele tinha acendido tudo. Ela flexionou os dedos uma vez, devagar, sem chamar nada, só deixando o músculo lembrar do gesto de conduzir; depois firmou o queixo e sustentou o olhar do professor com a calma de quem aceita o começo da atividade.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤㅤ⸻ 𝕰𝖝̊̊𝖘̊̇̇𝖚̊̊𝖗̇̊̇̊𝖌̊𝖊̊̇̇̊ 𝖚̊̇̇𝖑̊̊̇̊𝖙̇𝖗̇̇̇̊𝖆̊̊̇ 𝖕𝖔̊̊𝖗̊̇̊𝖙̊̊̊̊̊̇𝖆̇̇𝖘̊̇̊̇ 𝓐̊̊̇̇̇̇̇𝖓̇̇̇𝖎̊̊̊̇𝖒̇̇̊𝖆̊̊̇𝖊̊ 𝕸̊𝖚̊̇̇𝖓̊̊𝖉̇̇̇̊̇𝖎̊̊̇̇,̇ 𝖔 𝖌̊̇̇̇̊𝖔𝖑̊̇̊̇𝖊𝖒̇̊̊ 𝖒̇̊̊𝖊̊̊̇𝖚̊̇̊𝖒 𝖋̇𝖔𝖗̇̊̇̊̇𝖒̇̇𝖎̇̇̊̊̇𝖉̊̊𝖆̇̊𝖇̊̇̇̊̇𝖎̇̇̊𝖑̊𝖊̇̊ⵑ
+
+ㅤㅤAo pronunciar a palavra final, Anton ajoelhou-se bruscamente e cravou as duas palmas abertas no centro do círculo sob seus pés. Uma pulsação violeta e metálica disparou de suas mãos, percorrendo as malhas luminosas que conectavam todo o pátio.
+
+ㅤㅤO solo tremeu pesadamente. A luz dos círculos transmutativos sob os pés de cada estudante começou a oscilar e a consumir o ar, canalizando e drenando uma fração contínua da mana presente em todos os seres reunidos no pátio. A partir dessa essência compartilhada, a matéria do solo de pedra e a poeira alquímica ergueram-se em espirais densas. Do chão, figuras colossais e robustas tomaram forma em meio a estalos de rocha e vapor: Golens transmutados, cujos corpos refratavam a energia drenada e se fortificavam a cada segundo. Anton ergueu-se, ajeitando as mangas com um sorriso afiado enquanto os autômatos de pedra e bronze firmavam seus passos pesados ao redor dos alunos.
+
+ㅤㅤ⸻ 𝐄𝐬𝐬𝐞𝐬 𝐆𝐨𝐥𝐞𝐧𝐬 𝐟𝐨𝐫𝐚𝐦 𝐟𝐨𝐫𝐣𝐚𝐝𝐨𝐬 𝐞 𝐩𝐫𝐞𝐩𝐚𝐫𝐚𝐝𝐨𝐬 𝐜𝐨𝐦 𝐛𝐚𝐬𝐞 𝐧𝐨 𝐪𝐮𝐞 𝐣𝐚́ 𝐬𝐚𝐛𝐞𝐦𝐨𝐬 𝐬𝐨𝐛𝐫𝐞 𝐨𝐬 𝐬𝐞𝐮𝐬 𝐩𝐨𝐝𝐞𝐫𝐞𝐬... 𝐄𝐥𝐞𝐬 𝐬𝐚̃𝐨 𝐚𝐥𝐭𝐚𝐦𝐞𝐧𝐭𝐞 𝐫𝐞𝐬𝐢𝐬𝐭𝐞𝐧𝐭𝐞𝐬 𝐚𝐨𝐬 𝐝𝐨𝐧𝐬 𝐜𝐨𝐦𝐮𝐧𝐬 𝐪𝐮𝐞 𝐜𝐚𝐝𝐚 𝐮𝐦 𝐝𝐞 𝐯𝐨𝐜𝐞̂𝐬 𝐩𝐨𝐬𝐬𝐮𝐢 𝐢𝐧𝐝𝐢𝐯𝐢𝐝𝐮𝐚𝐥𝐦𝐞𝐧𝐭𝐞. 𝐒𝐞 𝐪𝐮𝐢𝐬𝐞𝐫𝐞𝐦 𝐝𝐞𝐫𝐫𝐮𝐛𝐚́-𝐥𝐨𝐬, 𝐧𝐚̃𝐨 𝐚𝐝𝐢𝐚𝐧𝐭𝐚 𝐥𝐮𝐭𝐚𝐫 𝐬𝐨𝐳𝐢𝐧𝐡𝐨𝐬: 𝐩𝐫𝐞𝐜𝐢𝐬𝐚𝐫𝐚̃𝐨 𝐬𝐞 𝐚𝐥𝐢𝐚𝐫 𝐚𝐨𝐬 𝐬𝐞𝐮𝐬 𝐜𝐨𝐥𝐞𝐠𝐚𝐬 𝐞 𝐭𝐫𝐚𝐛𝐚𝐥𝐡𝐚𝐫 𝐞𝐦 𝐜𝐨𝐧𝐣𝐮𝐧𝐭𝐨.
+
+ㅤㅤAproveitando a tensão crescente, a Professora Euphemia Castle deu um passo à frente, sua voz projetando-se com autoridade cirúrgica sobre o estalo da rocha e o zumbido da mana.
+
+ㅤㅤㅤ⸻  𝐋𝐞𝐦𝐛𝐫𝐞𝐦-𝐬𝐞 𝐝𝐨 𝐞𝐧𝐬𝐢𝐧𝐚𝐦𝐞𝐧𝐭𝐨 𝐟𝐮𝐧𝐝𝐚𝐦𝐞𝐧𝐭𝐚𝐥: 𝐀𝐫𝐜𝐚𝐧𝐨 𝐞 𝐏𝐫𝐨𝐟𝐚𝐧𝐨 𝐬𝐞 𝐚𝐧𝐮𝐥𝐚𝐦 𝐦𝐮𝐭𝐮𝐚𝐦𝐞𝐧𝐭𝐞. 𝐎 𝐒𝐞𝐥𝐯𝐚𝐠𝐞𝐦 𝐞́ 𝐚𝐧𝐮𝐥𝐚𝐝𝐨 𝐩𝐞𝐥𝐨 𝐂𝐚𝐛𝐚𝐥𝛊́𝐬𝐭𝐢𝐜𝐨, 𝐞 𝐨 𝐂𝐚𝐛𝐚𝐥𝛊́𝐬𝐭𝐢𝐜𝐨 𝐞́ 𝐚𝐧𝐮𝐥𝐚𝐝𝐨 𝐩𝐞𝐥𝐨 𝐆𝐧𝐨́𝐬𝐭𝐢𝐜𝐨. 𝐂𝐨𝐧𝐭𝐮𝐝𝐨, 𝐨 𝐒𝐞𝐥𝐯𝐚𝐠𝐞𝐦 𝐭𝐚𝐦𝐛𝐞́𝐦 𝐚𝐧𝐮𝐥𝐚 𝐨 𝐆𝐧𝐨́𝐬𝐭𝐢𝐜𝐨. 𝐔𝐬𝐞𝐦 𝐚 𝐜𝐨𝐦𝐩𝐥𝐞𝐦𝐞𝐧𝐭𝐚𝐫𝐢𝐞𝐝𝐚𝐝𝐞 𝐞 𝐚𝐬 𝐚𝐧𝐮𝐥𝐚𝐜̧𝐨̃𝐞𝐬 𝐝𝐨𝐬 𝐑𝐚𝐦𝐨𝐬 𝐚 𝐬𝐞𝐮 𝐟𝐚𝐯𝐨𝐫!
+
+ㅤㅤAntes mesmo que o último eco da voz de Euphemia se dissipasse, os olhos dos Golens acenderam-se em um brilho escarlate e runas incandescentes rasgaram sua carcaça de pedra. Sem qualquer aviso, as criaturas avançaram em uma investida coordenada e brutal contra os estudantes reunidos, fazendo o solo do pátio estremecer sob o impacto de seus passos pesados.
+
+ㅤㅤㅤ⸻ Boa sorte! Não morram, o Cornelius me mata se mais algum aluno morrer. 
+
+𝐑𝐞𝐬𝐮𝐦𝐨: Cael puxou Edgar para lutar contra seu golem de magia Cabalística, e ao assumir a forma do filho do êxodo saltou e perfurou a cabeça do golem de magia selvagem de Amália.
+
+ㅤ ㅤㅤ       ◜𝐂𝐚𝐞𝐥 𝐓𝐫𝐢𝐦𝐞𝐠𝐢𝐬𝐭𝐮𝐬◞
+ㅤ ㅤㅤ              ◜𝑻𝒆𝒄𝒆𝒕𝒓𝒊𝒛𝒆𝒔 ◞
+
+༺━━━━━━━༺◜༼˖𓄃‧.༽◞༻━━━━━━━༻
+ㅤ ㅤㅤ   ◜𓄃◞  Com a calmaria predominando, acompanhei cada palavra dita por Anton até que o solo temesse, causando o rompimento das rochas que passaram a se mover, unindo uma a outra e tomando a forma de um golem. Cada criatura era alimentada pelas fontes de nossa própria magia, o que significava que meus poderes não surtiria efeito contra meu oponentes. Segundo as palavras de Euphemia, o conceito daquele teste era lutar contra o oposto da minha magia, e seguindo o que havia sido indicado a magia selvagem era naturalmente vulnerável a Cabalística. Dentro daquele espectro, o Golem de Amália era o alvo ideal, mas contra meu próprio inimigo teria que pedir ajuda a outra pessoa.
+
+ㅤㅤㅤ Detendo conhecimento das habilidades de Edgar, me movia com velocidade indo até o garoto e segurando em sua mão, puxando seu corpo para perto do meu. Em um movimento girava nossos corpos, o colocando diante de meu golem, garantindo que ele conseguisse efetuar a destruição da criatura sem dificuldades. Meu olhar deixava claro que ele poderia confiar em mim. Por consequência, Edgar ficava distante de seu golem, e justamente nesse momento deixava o dom Cabalístico fluir por meu corpo, de modo que meus ossos reagiam rasgando minha carne e tomando forma como uma armadura, enquanto chifres adornaram minha cabeça.
+
+ㅤㅤㅤ Aproveitando que meu corpo crescia, utilizava os 5 metros de vantagem para saltar em direção a Amália, mas sem intenção de acertar a garota. A destra unia meus dedos de modo que os ossos formavam uma estrutura semelhante a uma lança. No momento em que estava próximo a Amália aterrisava em cima do Golem de magia selvagem, usando a força para o derrubar causando tremor no salão. Com um golpe direto minha destra desferia uma estocada direta na cabeça do Golem, abrindo um buraco interrompendo o fluxo de magia selvagem, ao injetar magia Cabalística na equação que o mantinha vivo.
+༺━━━━━━━༺◜༼˖𓄃‧.༽◞༻━━━━━━━༻
