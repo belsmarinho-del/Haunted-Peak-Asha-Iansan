@@ -58,3 +58,29 @@ Obs: Esse evento se passa dias após Transmutatio Agnus.md
 ─── ❖ ── ✦ ──
 ㅤㅤㅤ
 Resumo: Amália processa a explicação do ritual e a resposta de Meliorn sobre o responsável pelo rompimento das barreiras, confirmando pela leitura de intenções que nenhuma mentira foi detectada nas falas dos professores. Antes da comunhão, ela decide o que vai abrir na dança dos símbolos e o que mantém fechado, pensando na aranha penhorada no peito e na sombra que ficou no Véu, e escolhe seu círculo entre as pessoas que já leu.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤㅤ⸻ 𝕽𝖊𝖈𝖔𝖓𝖍𝖊𝖈𝖊𝖚 𝖆 𝖒𝖎𝖒, 𝖕𝖊𝖖𝖚𝖊𝖓𝖆 𝖈𝖗𝖎𝖆𝖓𝖈̧𝖆? 𝕴𝖘𝖘𝖔 𝖘𝖎𝖒 𝖊́ 𝖕𝖗𝖔𝖒𝖎𝖘𝖘𝖔𝖗. 𝕱𝖎𝖈𝖔 𝖒𝖆𝖎𝖘 𝖆𝖑𝖎𝖛𝖎𝖆𝖉𝖔 𝖊𝖒 𝖘𝖆𝖇𝖊𝖗 𝖖𝖚𝖊 𝖓𝖆̃𝖔 𝖊́ 𝖚𝖒 𝖊𝖓𝖊𝖗𝖌𝖚́𝖒𝖊𝖓𝖔 𝖈𝖔𝖒𝖔 𝖆𝖖𝖚𝖊𝖑𝖊 𝖗𝖆𝖕𝖆𝖟 𝖖𝖚𝖊 𝖚𝖒 𝖉𝖎𝖆 𝖙𝖊𝖓𝖙𝖔𝖚 𝖒𝖊 𝖉𝖔𝖒𝖆𝖗, 𝖔 𝖙𝖆𝖑 𝖉𝖊 𝕯𝖊𝖑𝖕𝖍𝖔𝖘 𝕭𝖊𝖆𝖚𝖈𝖍𝖆𝖒𝖕.
+
+ㅤㅤCael, entretanto, mal teve tempo de conseguir responder com clareza a figura do Velho Pardal, já que ele foi o primeiro a ser acertado de supetão pelas mãos de sombras que surgiram, o agarrando pela nuca e jogando contra o corpo de Edgar.
+
+ㅤㅤㅤ⸻ 𝕰𝖘𝖙𝖆́ 𝖋𝖎𝖈𝖆𝖓𝖉𝖔 𝖘𝖊𝖒 𝖙𝖊𝖒𝖕𝖔, 𝖈𝖗𝖎𝖆𝖓𝖈̧𝖆. 𝕻𝖊𝖓𝖘𝖊𝖎 𝖖𝖚𝖊 𝕯𝖆𝖕𝖍𝖓𝖊 𝖏𝖆́ 𝖙𝖎𝖓𝖍𝖆 𝖙𝖊 𝖆𝖑𝖈𝖆𝖓𝖈̧𝖆𝖉𝖔, 𝖒𝖆𝖘 𝖕𝖊𝖑𝖔 𝖛𝖎𝖘𝖙𝖔 𝖛𝖔𝖈𝖊̂ 𝖓𝖆̃𝖔 𝖊́ 𝖙𝖆̃𝖔 𝖇𝖔𝖒 𝖆𝖘𝖘𝖎𝖒, 𝖓𝖊́? 𝕻𝖆𝖗𝖆 𝖆𝖘𝖘𝖚𝖒𝖎𝖗 𝖒𝖊𝖚 𝖑𝖚𝖌𝖆𝖗 𝖈𝖔𝖒𝖔 𝕬𝖚𝖙𝖔𝖗𝖎𝖉𝖆𝖉𝖊 𝕷𝖚𝖓𝖆𝖗 𝖕𝖗𝖊𝖈𝖎𝖘𝖆 𝖋𝖎𝖈𝖆𝖗 𝖚𝖒 𝖕𝖔𝖚𝖈𝖔 𝖒𝖆𝖎𝖘 𝖋𝖔𝖗𝖙𝖊, 𝖓𝖆̃𝖔 𝖈𝖔𝖓𝖈𝖔𝖗𝖉𝖆?
+
+ㅤㅤO baque seco dos corpos de Cael e Edgar colidindo ecoou com violência pelas pedras do 𝕺𝖇𝖘𝖊𝖗𝖛𝖆𝖙ó𝖗𝖎𝖔, quebrando bruscamente a discussão entre os preceptores. O pânico instalou-se em questão de segundos: as marcações em pó de prata no chão começaram a crepitar e fraquejar, virando cinzas negras sob a influência de um miasma corrosivo que vazava das frestas do piso.
+
+ㅤㅤLâminas de trevas pura brotaram do centro dos diagramas lunares como garras famintas. As sombras não vinham de fora do castelo, mas emergiam diretamente da própria estrutura, retorcendo a arquitetura do 𝕺𝖇𝖘𝖊𝖗𝖛𝖆𝖙ó𝖗𝖎𝖔 e revelando que a maldição traidora já estava infiltrada no coração do ritual. Meliorn conjurou barreiras instintivas para proteger os estudantes mais próximos, enquanto Edwina e Euphemia assumiram posturas de combate, os fios mágicos de Euphemia estalando no ar enquanto o sangue continuava a pingar do rosto de Scarlet. A harmonia fora completamente despedaçada; 𝐨𝐬 𝐯𝐢𝐧𝐭𝐞 𝐦𝐢𝐧𝐮𝐭𝐨𝐬 𝐚𝐭𝐞́ 𝐨 𝐏𝐨𝐧𝐭𝐨 𝐝𝐚 𝐋𝐮𝐚 𝐡𝐚𝐯𝐢𝐚𝐦 𝐬𝐞 𝐭𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐚𝐝𝐨 𝐞𝐦 𝐮𝐦𝐚 𝐜𝐨𝐧𝐭𝐚𝐠𝐞𝐦 𝐫𝐞𝐠𝐫𝐞𝐬𝐬𝐢𝐯𝐚 𝐩𝐞𝐥𝐚 𝐬𝐨𝐛𝐫𝐞𝐯𝐢𝐯𝐞̂𝐧𝐜𝐢𝐚.
+
+ㅤㅤTodavia, Scarlet viu quando, a partir dos céus, inúmeras figuras sombrias surgiram, começando a deslizar pelas estrelas e se lançando contra o grupo, os cercando de modo nada amigável enquanto os olhos brilhosos ardiam e, por consequência, a 𝕸𝖆𝖗𝖈𝖆 𝖉𝖆 𝕽𝖚𝝸́𝖓𝖆 sobre seu braço também queimava.
+
+ㅤㅤAisha foi uma das primeiras a também ser atingida, quando uma criatura das sombras se lançou sobre ela e a jogou em direção de Jaciara, fazendo ambas rolarem pelo solo enquanto saíam da demarcação, caindo próximas aos pés de Romulus, que ergueu duas espadas de sangue para fincar contra o ser obscuro que se lançou na direção dele.
+
+ㅤㅤNicholas não queria que nenhuma surpresa indesejada atravessasse sua linha de defesa. Bom, isso era justo, mas ele não teve tanta sorte assim. O Trimegistus veria quando uma porta rubra, com uma maçaneta de crânio e detalhes de lua entalhados, surgiu, abrindo-se e jogando o corpo de Atlas Beauchamp contra seu peitoral, o derrubando no chão devido ao susto. E, logo acima de ambos, um vórtice azulado se abria, fazendo com que Aster Belserion caísse em cima dos dois, trazendo consigo águas estígias que caíam sobre o trio enquanto que, diante dos rapazes, eles veriam o seguinte; um homem de cabelos escuros os encarando dos céus escuros.
+
+ㅤㅤA atmosfera sobre a cúpula despedaçada do 𝕺𝖇𝖘𝖊𝖗𝖛𝖆𝖙ó𝖗𝖎𝖔 estremeceu sob o fluxo violento de magia profana. Do topo dos céus, o homem de cabelos escuros abriu os braços, invocando uma revoada macabra de milhares de morcegos de sombras que despencaram em rasante como um redemoinho sangrento e ensurdecedor.
+
+ㅤㅤEdwina Bishop, porém, reagiu em uma fração de segundo. Com um bramido grave, a preceptora ergueu ambas as mãos, fazendo uma onda de energia profana e púrpura explodir de suas palmas. O choque mágico moldou instantaneamente um imponente escudo de sigilos antigos no ar, contra o qual a horda de morcegos colidiu em um espetáculo de fagulhas e chiados corrosivos. Sem hesitar, Edwina entrelaçou os dedos e canalizou o poder profano em uma lança teleguiada de pura mana carmesim-violeta, disparando-a diretamente contra o peito do Conde Vampiro nos céus. O impacto certeiro reverberou pela noite, acertando o homem em cheio no peitoral e fazendo seu corpo retorcer-se enquanto era arremessado metros para trás no firmamento, comprando segundos preciosos para o grupo.
+
+ㅤㅤ⸻ 𝐄𝐌𝐀𝐍𝐀𝐃𝐎𝐑𝐄𝐒, 𝐒𝐄 𝐉𝐔𝐍𝐓𝐄𝐌 𝐍𝐎𝐒 𝐂Ɩ́𝐑𝐂𝐔𝐋𝐎𝐒, 𝐀𝐆𝐎𝐑𝐀ⵑ ⸻ gritou Edwina, mantendo a guarda erguida e o semblante tomado pela fúria de combate enquanto o escudo de sigilos ainda sibilava contra as trevas residual.
+
+ㅤㅤ⸻ 𝐍𝐞𝐨́𝐟𝐢𝐭𝐨𝐬ⵑ 𝐋𝐢𝐧𝐡𝐚 𝐝𝐞 𝐟𝐫𝐞𝐧𝐭𝐞, 𝐯𝐚𝐦𝐨𝐬 𝐬𝐞𝐠𝐮𝐫𝐚𝐫 𝐚𝐬 𝐚𝐦𝐞𝐚𝐜̧𝐚𝐬 𝐚𝐪𝐮𝐢 𝐞𝐧𝐪𝐮𝐚𝐧𝐭𝐨 𝐨𝐬 𝐄𝐦𝐚𝐧𝐚𝐝𝐨𝐫𝐞𝐬 𝐩𝐞𝐫𝐟𝐨𝐫𝐦𝐚𝐦 𝐨 𝐫𝐢𝐭𝐮𝐚𝐥, 𝐚𝐠𝐨𝐫𝐚ⵑ ⸻ gritou Romulus, moldando correntes hemocinéticas para atacar os seres sombrios, enquanto chicoteava o ar com o sangue ardente e fincava a lâmina rubra na criatura que ameaçava o solo.
