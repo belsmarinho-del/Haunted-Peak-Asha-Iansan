@@ -97,6 +97,16 @@ Resumo: Amália processa a explicação do ritual e a resposta de Meliorn sobre 
 ㅤㅤㅤ ⋆˖⁺‧☾  𝐎𝐛𝐣𝐞𝐭𝐢𝐯𝐨: 𝐎𝐬 𝐍𝐞𝐨́𝐟𝐢𝐭𝐨𝐬 𝐚𝐬𝐬𝐮𝐦𝐞𝐦 𝐚 𝐩𝐨𝐬𝐢𝐜̧𝐚̃𝐨 𝐝𝐞 𝐯𝐚𝐧𝐠𝐮𝐚𝐫𝐝𝐚 𝐞 𝐝𝐞𝐟𝐞𝐬𝐚 𝐝𝐢𝐫𝐞𝐭𝐚.
 ㅤㅤㅤ ⋆˖⁺‧☾ 𝐌𝐞𝐜𝐚̂𝐧𝐢𝐜𝐚: 𝐃𝐞𝐯𝐞𝐦 𝐝𝐚𝐫 𝐬𝐮𝐩𝐨𝐫𝐭𝐞 𝐚𝐨𝐬 𝐏𝐫𝐞𝐜𝐞𝐩𝐭𝐨𝐫𝐞𝐬, 𝐜𝐫𝐢𝐚𝐧𝐝𝐨 𝐮𝐦𝐚 𝐛𝐚𝐫𝐫𝐞𝐢𝐫𝐚 𝐝𝐞 𝐩𝐫𝐨𝐭𝐞𝐜̧𝐚̃𝐨 𝐟𝛊́𝐬𝐢𝐜𝐚 𝐞 𝐭𝐚́𝐭𝐢𝐜𝐚 𝐚𝐨 𝐫𝐞𝐝𝐨𝐫 𝐝𝐨𝐬 𝐄𝐦𝐚𝐧𝐚𝐝𝐨𝐫𝐞𝐬. 𝐐𝐮𝐚𝐥𝐪𝐮𝐞𝐫 𝐢𝐧𝐭𝐞𝐫𝐫𝐮𝐩𝐜̧𝐚̃𝐨 𝐧𝐨 𝐜𝛊́𝐫𝐜𝐮𝐥𝐨 𝐫𝐞𝐝𝐮𝐳𝐢𝐫𝐚́ 𝐨 𝐭𝐞𝐦𝐩𝐨 𝐡𝐚́𝐛𝐢𝐥 𝐞 𝐝𝐞𝐬𝐞𝐬𝐭𝐚𝐛𝐢𝐥𝐢𝐳𝐚𝐫𝐚́ 𝐨 𝐫𝐢𝐭𝐮𝐚𝐥.
 
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤAmália levantou antes de o corpo terminar de rolar. O impacto a tinha jogado para fora da demarcação e o mármore sob as palmas estava quente, esfarelando em cinza preta onde a prata das marcações ainda tentava segurar o desenho. De pé, com o peso na frente, ela varreu o Observatório quebrado: o piso rachado cuspindo lâminas escuras pelas frestas, o miasma comendo as linhas de prata por baixo, a horda de figuras descendo do céu em volta da cúpula aberta e o homem de cabelos escuros ainda lá em cima, recuado pela lança da preceptora. A contagem de vinte minutos corria dentro da cabeça dela junto do grito de Romulus mandando os Neófitos para a linha de frente. Os círculos dos Emanadores não eram lugar para ela e a ordem não pedia discussão: atravessou o salão até a borda do perímetro, o ponto onde o ataque vinha mais fechado, e parou ali de frente para o céu.
+ㅤㅤㅤ
+ㅤㅤㅤNa borda, ela abriu os fios. A trama do destino se desdobrou em volta dos círculos em arcos invisíveis, presa à concentração dela, e a barreira fechou o perímetro dos Emanadores com sete metros de cobertura, o desenho lunar inteiro por dentro. Da mesma teia os corvos de sombra despejaram em bando, caindo sobre as criaturas que se aproximavam antes que tocassem as marcações. Ela manteve os pés fincados naquele ponto, os olhos alternando entre o céu e as frestas do piso, segurando a trama esticada enquanto os turnos corriam.
+ㅤㅤㅤ
+─── ❖ ── ✦ ──
+ㅤㅤㅤ
+Resumo: Amália se recupera do arremesso que a tirou da marcação e lê o campo. Por não ser Emanadora, ela assume o cargo de Neófita que a dinâmica de confronto pede e ocupa a linha de frente, escolhendo a borda mais exposta do perímetro. Dali usa o Fate's Weave: Shadow Crows para erguer uma barreira de fios do destino ao redor dos Emanadores, com sete metros de cobertura sustentada por concentração, e solta a revoada de corvos contra as criaturas que se aproximam, impedindo que qualquer interrupção reduza o tempo do ritual
+
 ㅤㅤㅤ ⚔️ 𝟑. 𝐎𝐁𝐉𝐄𝐓𝐈𝐕𝐎 𝐆𝐄𝐑𝐀𝐋 𝐃𝐀 𝐅𝐑𝐀𝐓𝐄𝐑𝐍𝐈𝐃𝐀𝐃𝐄 (𝐀𝐌𝐁𝐎𝐒 𝐎𝐒 𝐂𝐀𝐑𝐆𝐎𝐒)
 ㅤㅤㅤ ⋆˖⁺‧☾ 𝐀𝐦𝐞𝐚𝐜̧𝐚 𝐏𝐫𝐢𝐧𝐜𝐢𝐩𝐚𝐥: 𝐎 𝐂𝐨𝐧𝐝𝐞 𝐍𝐚𝐫𝐤𝐢𝐬𝐬𝐮𝐬 𝐞 𝐨 𝐞𝐱𝐞́𝐫𝐜𝐢𝐭𝐨 𝐝𝐞 𝐅𝐢𝐠𝐮𝐫𝐚𝐬 𝐝𝐚𝐬 𝐒𝐨𝐦𝐛𝐫𝐚𝐬 𝐪𝐮𝐞 𝐚𝐯𝐚𝐧𝐜̧𝐚𝐦 𝐝𝐨 𝐜𝐞́𝐮 𝐞 𝐝𝐨 𝐦𝐢𝐚𝐬𝐦𝐚 𝐬𝐮𝐛𝐭𝐞𝐫𝐫𝐚̂𝐧𝐞𝐨.
 ㅤㅤㅤ ⋆˖⁺‧☾ 𝐌𝐢𝐬𝐬𝐚̃𝐨 𝐂𝐫𝛊́𝐭𝐢𝐜𝐚: 𝐈𝐦𝐩𝐨𝐬𝐬𝐢𝐛𝐢𝐥𝐢𝐭𝐚𝐫 𝐞 𝐝𝐞𝐭𝐞𝐫 𝐚 𝐭𝐨𝐝𝐨 𝐜𝐮𝐬𝐭𝐨 𝐨 𝐚𝐯𝐚𝐧𝐜̧𝐨 𝐝𝐚𝐬 𝐜𝐫𝐢𝐚𝐭𝐮𝐫𝐚𝐬 𝐞 𝐝𝐨 𝐂𝐨𝐧𝐝𝐞 𝐩𝐚𝐫𝐚 𝐪𝐮𝐞 𝐧𝐚̃𝐨 𝐫𝐨𝐦𝐩𝐚𝐦 𝐨 𝐩𝐞𝐫𝛊́𝐦𝐞𝐭𝐫𝐨 𝐞 𝐢𝐧𝐯𝐚𝐝𝐚𝐦 𝐚 𝐓𝐨𝐫𝐫𝐞 𝐝𝐞 𝐀𝐬𝐭𝐫𝐨𝐥𝐨𝐠𝐢𝐚. 𝐒𝐞 𝐚 𝐭𝐨𝐫𝐫𝐞 𝐜𝐚𝐢𝐫, 𝐨 𝐫𝐢𝐭𝐮𝐚𝐥 𝐬𝐞𝐫𝐚́ 𝐢𝐧𝐭𝐞𝐫𝐫𝐨𝐦𝐩𝐢𝐝𝐨 𝐩𝐞𝐫𝐦𝐚𝐧𝐞𝐧𝐭𝐞𝐦𝐞𝐧𝐭𝐞 𝐞 𝐚𝐬 𝐝𝐞𝐟𝐞𝐬𝐚𝐬 𝐝𝐞 𝐇𝐚𝐮𝐧𝐭𝐞𝐝 𝐏𝐞𝐚𝐤 𝐫𝐮𝐢𝐫𝐚̃𝐨.
