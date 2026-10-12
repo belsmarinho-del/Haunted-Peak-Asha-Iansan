@@ -184,3 +184,151 @@ Resumo: Amália é atingida pela rajada de fogo necrótico dos dragões e arreme
 ─── ❖ ── ✦ ──
 ㅤㅤㅤ
 Resumo: Amália aguenta a enxaqueca do Shadow Crows de pé (Vontade 15), se põe de corpo entre as garras dos simulacros e Francis, invoca os quatro Karate Crows of Midas como muralha dourada e diz que os rostos dos pais dele são mentira.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤUm fragmento da pura essência de 𝕾𝖊𝖙𝖙, 𝕺 𝕯𝖊𝖚𝖘 𝕯𝖊𝖘𝖒𝖊𝖒𝖇𝖗𝖆𝖉𝖔, irrompeu das sombras mais profundas do Observatório como uma praga viva. As paredes da Torre de Astrologia reluziram em um brilho doentio e vacilante, incapazes de conter a magnitude da entidade que acabara de cruzar o véu, coincidindo com o exato instante em que Edgar e Scarlett retornavam abruptamente das tortuosas profundezas do Mundo Onírico.
+
+ㅤㅤA criatura sombria avançou com velocidade bestial contra o corpo de Wonderweiss, que ainda tentava se recuperar do atordoamento gerado pelo uso de seus dons. Sem hesitação, o monstro o ergueu e o arremessou violentamente através da janela estilhaçada da torre, despencando rumo ao vazio. Em seguida, Sett girou os calcanhares, fitando Scarlett com um sorriso obscuro e gélido que fez o sangue da Mater gelar.
+
+ㅤㅤ⸻ 𝔐𝔦𝔫𝔥𝔞 ℜ𝔲ί𝔫𝔞 ℭ𝔞𝔯𝔪𝔢𝔰𝔦𝔪. 𝔙𝔬𝔠𝔢̂ 𝔭𝔯𝔦𝔪𝔢𝔦𝔯𝔬 𝔭𝔯𝔢𝔠𝔦𝔰𝔞 𝔰𝔞𝔫𝔤𝔯𝔞𝔯 𝔭𝔞𝔯𝔞 𝔢𝔳𝔬𝔩𝔲𝔦𝔯 𝔢 𝔰𝔢 𝔢𝔯𝔤𝔲𝔢𝔯 𝔠𝔬𝔪𝔬 𝔲𝔪𝔞 𝔡𝔢 𝔪𝔦𝔫𝔥𝔞𝔰 𝔓𝔯𝔢𝔠𝔲𝔯𝔰𝔬𝔯𝔞𝔰 𝔡𝔬 𝔄𝔭𝔬𝔠𝔞𝔩𝔦𝔭𝔰𝔢.  ⸻ sussurrou ele, cravando os dedos sombrios em seu ombro e fazendo-a desabar contra o solo, o sangue manchando instantaneamente as pedras ancestrais.
+
+ㅤㅤDespencando das alturas em direção à base onde se concentravam os alunos, a manifestação de trevas aterrissou pesadamente bem diante de Howlite e Mina Blackhart.
+
+ㅤㅤ⸻ 𝕬𝗙𝗔𝗦𝗧𝗘-𝗦𝗘ⵑ! ⸻ urrou o tecelão do Silêncio, Howl, descarregando ondas sonoras compactas em direção ao intruso. Sett, contudo, limitou-se a rir de modo perverso do esforço do rapaz. Estendendo as mãos, ele manipulou a pressão acústica com maestria, canalizando a própria onda de choque de volta contra a cabeça do Stone. Um estalo seco ecoou antes que a pressão explodisse o crânio de Howl, cujo corpo tombou inerte no chão.
+
+ㅤㅤMina arregalou os olhos em pavor absoluto, recuando trêmula enquanto moldava apressadamente um sigilo em nanquim, disparando garras rubras e afiadas contra o invasor. Mas Sett já não estava lá; em uma fração de segundo, materializou-se logo atrás dela, envolvendo a nuca da garota com um bote implacável e torcendo seu pescoço com força brutal, silenciando-a enquanto o sangue de Blackhart escorria por seus lábios.
+
+ㅤㅤMeliorn Weavercraft, que guardava distância coordenando as defesas, tentou avançar para socorrer os jovens, mas foi interceptado de forma brutal: uma estalactite afiada de areia onírica, disparada pelo Deus Desmembrado, atravessou seu peito em um golpe empalador.
+
+ㅤㅤErguendo-se do chão com dificuldade e resmungando de dor, Edgar percebeu a carnificina e ergueu as mãos, tentando moldar bandos de pássaros de areia nascidos de pesadelos. Todavia, a velocidade de Sett desafiava a realidade. Em um piscar de olhos, o Sankto já estava postado à sua frente, e suas garras sombrias rasgaram um corte profundo na garganta do Oniromante, que caiu de joelhos, afogando-se no próprio sangue que manchava suas vestes.
+
+ㅤㅤPouco mais adiante, Francis encarava o desespero de frente. Mal tendo aprendido os princípios rudimentares da Arte da Khemia, ele sabia que a alquimia exigia estudo, prática e um talento inato que ainda não possuía. Contudo, guiado pela urgência do momento e pelo instinto primordial de sobrevivência, o sangue Skavronsky em suas veias respondeu: suas mãos hábeis moldaram aquela energia selvagem e instável, manifestando a essência bruta do Lycan em uma arma tangível — a lâmina afiada e rubra de um machado pesado. Urrando, ele desferiu um golpe feroz contra as criaturas monstruosas que o cercavam, desfazendo-as em poças de sangue.
+
+ㅤㅤAo seu lado, Amália ergueu uma sólida barreira de ouro puro, blindando a dupla contra a explosão sanguínea gerada pela destruição dos simulacros. Mas o alívio durou frações de segundo.
+
+ㅤㅤSett materializou-se acima de ambos em um salto mortal. Com um soco devastador, atingiu Francis com tanta força que o abdômen do rapaz foi literalmente rasgado ao meio no segundo golpe, espalhando suas vísceras pelo chão enquanto o jovem Skavronsky tombava, morto. Girando o corpo em seguida, o Deus Desmembrado encarou Amália, parando por um instante para analisá-la com um desdém cortante.
+
+ㅤㅤ⸻ ꓦ𐌄ᚱᚢ𐌀́𐌂Ⳙ𐌋𐌏 𐌃𐌏 𐌃𐌄𐌔𐌕𐌆ᚢ𐌏? 𐌄𐌔𐌓𐌄ᚱ𐌀ꓦ𐌀 ᛖ𐌀𐌆𐌔.
+
+ㅤㅤCom um mero peteleco displicente no peitoral da garota, a força cinética estilhaçou suas costelas, cujas pontas afiadas perfuraram instantaneamente seus pulmões. Arremessada a metros de distância, Amália colidiu com a estrutura da torre, abrindo o crânio e vertendo sangue em um fluxo violento. Enquanto a vida esvaía-se de seus olhos, a última imagem que sua consciência registrou foi a de um corvo negro fitando-a fixamente antes que a escuridão definitiva a tragasse.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤAntes mesmo que o terror na Torre Astronômica pudesse ser assimilado, o próprio ar da noite estremeceu. Um estrondo abafado, como o rugido de um trovão subterrâneo, ecoou lá do alto, fazendo o chão de pedra vibrar sob os pés dos presentes.
+
+ㅤㅤAo erguerem os olhos, a visão era perturbadora.
+
+ㅤㅤNa ilha flutuante que pairava sobre o castelo, o contorno de uma batalha de proporções colossais cortava a névoa. Santiago Belserion com sua lança reluzindo em suas mãos e as asas em seus pés cortando o ar em rajadas desesperadas, travava um embate violento contra algo. Àquela distância, a entidade era uma massa disforme, um vulto de trevas distorcida que parecia engolir a própria luz ao seu redor, tornando impossível discernir onde terminava a sombra e onde começava o monstro.
+
+ㅤㅤSubitamente, a gravidade que sustentava a ilha no céu colapsou.
+
+ㅤㅤA gigantesca massa de terra perdeu a gravidade e começou a despencar diretamente contra o Castelo de Haunted Peak. O pânico iminente de uma aniquilação total durou apenas uma fração de segundo até que Guinevere emergiu entre as colunas, o rosto rígido pela concentração enquanto erguia as mãos para o céu. Uma onda de brilho carmim, como sangue, ergueu-se de suas palmas e envolveu toda a extensão da ilha no ar, congelando a queda monumental a poucos metros de esmagar as torres.
+
+ㅤㅤLogo ao seu lado, Carmen Belserion surgiu manifestando sua autoridade. Invocando correntes de água mística que espelhavam o próprio firmamento estrelado, a mulher teceu uma abóbada líquida e translúcida, uma bolha colossal que começou a selar e envolver o terreno suspenso, tentando isolar a ameaça que lá em cima habitava.
+
+ㅤㅤ⸻ Santiago! ⸻ o grito de Rômulo Argento ecoou, sua lâmina cortando ao meio as abominações que emergiam do solo. ⸻ Haunted Peak está sendo invadida! Que merda vocês do Conselho estavam fazendo, caralho?!
+
+ㅤㅤAntes que Santiago pudesse articular qualquer resposta do céu, uma projeção de sombra rasgou a barreira de ar e o atingiu em cheio na caixa torácica, arremessando o Belserion violentamente longe.
+
+ㅤㅤNo instante seguinte, o corpo de Leopold colidiu contra o pavimento de pedra da Torre Astronômica em uma queda brutal. O homem ergueu-se com dificuldade entre a poeira e os escombros, o rosto manchado de sangue e a aura vibrando com uma fúria. Ele nem sequer limpou o ferimento na testa antes de ajustar a postura, o olhar cravado no horror que se desenhava na ilha.
+
+ㅤㅤ⸻ O que você acha que a gente estava fazendo esse tempo todo?! ⸻ esbravejou Leopold, a voz carregada de um ódio. ⸻ A gente estava segurando o Sett, seu animal do caralho!
+
+ㅤㅤA confirmação do nome do Sankto do Caos nem teve tempo de ecoar na mente dos alunos.
+
+ㅤㅤNas paredes da bolha aquática recém-erguida por Carmen, a escuridão se manifestou. Mais de mil sombras disformes começaram a rastejar pela superfície fluida um aglutinado de figuras demoníacas e rostos sem feições que se moviam como um líquido viscoso, preto e faminto, tentando romper a barreira de dentro para fora.
+
+ㅤㅤSem esperar por uma trégua ou resposta, Leopold empunhou sua arma, e saltou com tudo em direção ao pesadelo que serpenteava sobre a bolha. Santiago voava logo atrás de seu companheiro, tentando finalizar a maioria das criaturas antes que fugissem.
+
+ㅤㅤ⸻ Ele está com os corpos dos Belnades, ele não pode fugir! ⸻ gritou Guinevere, ainda sustentando a ilha e cogitando seriamente em largar acima dos alunos em prol de algo maior; salvar a humanidade de um possível apocalipse.
+
+ㅤㅤ⸻A porra dos Decrépitos de merda conseguiram fugir na confusão, eu juro, eu vou matar quem fez essa merda. ⸻Leopold continuava gritando enquanto balançava sua espada cortando algumas das criaturas no caminho, enquanto outra flutuava e se movia sozinha, destruindo e decependo as sombras. ⸻ Cadê o desgraçado do Vincent, ele já terminou o feitiço?
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤUm vórtice espiralado rasgou os céus acima do vilarejo de Dusk Falls, abrindo uma fenda purpúrea no firmamento. Dele, duas maldições gnósticas despencaram como um cometa de agonia, disparadas como o prelúdio gélido para o fim desesperador que aguardava os habitantes daquele povoado esquecido.
+
+ㅤㅤAtlas Beauchamp foi o primeiro a se materializar no impacto. Em sua colossal Forma Bruxa, os sete metros de pura potência avassaladora impunham respeito, coroados pelo imponente chapéu pontiagudo adornado por plumas negras que despontava em sua cabeça. Com os braços perfeitamente moldados por espirais de pura energia, ele ergueu as mãos e disparou uma rajada devastadora de força crepuscular diretamente contra o corpo de seu tio, que vinha logo em seu encalço.
+
+ㅤㅤContudo, Aster Belserion emergiu do portal logo em seguida, ostentando uma Forma Bruxa monumental de nove metros. Suas escamas iridescentes absorveram parte do golpe de energia, fazendo-o recuar por um instante antes de responder com fúria. A criatura colossal rosnou, fazendo com que águas primordiais começassem a jorrar de seu portal, moldando-se instantaneamente em lâminas líquidas afiadas como navalhas que retalharam o ar em direção a Atlas.
+
+ㅤㅤA colisão entre os dois colossos transformou Dusk Falls em um inferno de cataclismo. Suas Formas Bruxas rasgavam literalmente a realidade, estilhaçando o tecido do espaço a cada golpe desferido e reduzindo as construções do vilarejo a ruínas e pó. A destruição foi absoluta, dizimando casas, ruas e vidas por completo, com uma única e enigmática exceção intocada: a pacata estrutura da Toca do Coelho, que permaneceu milagrosamente intacta em meio à devastação.
+
+ㅤㅤNo entanto, a violência do confronto foi abruptamente interceptada. Pela pura intensidade da energia gnóstica descarregada por ambos, uma conexão psíquica e mística forçou-se a ser estabelecida entre os dois primos. Fios púrpuras e luminosos teceram-se diante das espirais de energia, enquanto dezenas de olhos rubros e vigilantes brotavam no ar. Uma chuva mística de borboletas na tonalidade ametista despencou sobre o campo de batalha, lançando-se contra os rapazes e repousando suavemente sobre suas pálpebras, forçando-os a recuar enquanto uma silueta feminina imponente tomava espaço em suas visões turvas.
+
+ㅤㅤO corpo pálido e soberano erguia-se majestoso, revestido por uma armadura indestrutível de obsidiana e ferro estígio. Seus cabelos, de um tom tão negro que pareciam azulados, emolduravam um elmo que simulava asas de morcego perfeitamente abertas sobre sua cabeça. Milhares de tatuagens intrincadas cobriam sua pele — runas arcanas, sigilos profanos, códices cabalísticos e chaves gnósticas alojadas diretamente em sua carne. A figura estendeu seus longas dígitos úmbrios, e as asas de morcego em suas costas abriram-se por completo, projetando e refletindo em suas membranas a imensidão viva da própria Via Láctea.
+
+ㅤㅤ⸻ 𝕹𝖆̃𝖔 𝖊́ 𝖍𝖔𝖗𝖆 𝖉𝖊 𝖌𝖚𝖊𝖗𝖗𝖊𝖆𝖗𝖒𝖔𝖘 𝖚𝖓𝖘 𝖈𝖔𝖓𝖙𝖗𝖆 𝖔𝖘 𝖔𝖚𝖙𝖗𝖔𝖘, 𝖈𝖗𝖎𝖆𝖓𝖈̧𝖆𝖘. 𝕾𝖊𝖙𝖙 𝖊𝖘𝖙𝖆́ 𝖆𝖛𝖆𝖓𝖈̧𝖆𝖓𝖉𝖔, 𝖊 𝖈𝖔𝖒 𝖊𝖑𝖊 𝖛𝖊𝖒 𝖆 𝕻𝖔𝖉𝖗𝖎𝖉𝖆̃𝖔 𝖊 𝖔𝖘 𝕯𝖊𝖈𝖗𝖊́𝖕𝖎𝖙𝖔𝖘. 𝕾𝖊𝖚𝖘 𝖕𝖑𝖆𝖓𝖔𝖘 𝖘𝖆̃𝖔 𝖉𝖊𝖘𝖈𝖔𝖓𝖍𝖊𝖈𝖎𝖉𝖔𝖘, 𝖒𝖆𝖘 𝖊𝖑𝖊𝖘 𝖆𝖒𝖊𝖆𝖈̧𝖆𝖒 𝖆 𝖓𝖔𝖘𝖘𝖆 𝖔𝖗𝖉𝖊𝖒 𝖊 𝖓𝖔𝖘𝖘𝖆 𝖊𝖝𝖎𝖘𝖙𝖊̂𝖓𝖈𝖎𝖆. 𝓥𝖔𝖈𝖊̂𝖘 𝖘𝖆̃𝖔 𝖒𝖊𝖚 𝖘𝖆𝖓𝖌𝖚𝖊, 𝖒𝖊𝖚𝖘 𝖍𝖊𝖗𝖉𝖊𝖎𝖗𝖔𝖘, 𝖓𝖆̃𝖔 𝖑𝖚𝖙𝖊𝖒, 𝖊𝖚 𝖕𝖗𝖊𝖈𝖎𝖘𝖔 𝖖𝖚𝖊 𝖙𝖔𝖉𝖔𝖘 𝖓𝖔́𝖘, 𝕰𝖒𝖆𝖓𝖆𝖉𝖔𝖗𝖊𝖘, 𝖊𝖘𝖙𝖊𝖏𝖆𝖒𝖔𝖘 𝖊𝖒 𝖈𝖔𝖒𝖚𝖓𝖍𝖆̃𝖔... 𝓐𝖈𝖍𝖊𝖒 𝖖𝖚𝖊𝖒 𝖔𝖘 𝖙𝖗𝖆𝖎𝖚, 𝖕𝖔𝖎𝖘 𝖔 𝕱𝖆𝖗𝖘𝖆𝖓𝖙𝖊 𝖗𝖊𝖘𝖕𝖔𝖓𝖘𝖆́𝖛𝖊𝖑 𝖕𝖔𝖗 𝖎𝖘𝖘𝖔 𝖕𝖔𝖗𝖙𝖆 𝖊𝖒 𝖒𝖆̃𝖔𝖘 𝖆 𝓥𝖆𝖗𝖎𝖓𝖍𝖆 𝖉𝖊 𝕰𝖛𝖆, 𝖊 𝖕𝖔𝖘𝖘𝖚𝖎 𝖔 𝖕𝖔𝖉𝖊𝖗 𝖉𝖊 𝖗𝖊𝖆𝖑𝖎𝖟𝖆𝖗 𝖔𝖘 𝖋𝖊𝖎𝖙𝖎𝖈̧𝖔𝖘 𝖒𝖆𝖎𝖘 𝖈𝖆𝖙𝖆𝖈𝖑𝝸́𝖘𝖒𝖎𝖈𝖔𝖘 𝖖𝖚𝖊 𝖏𝖆́ 𝖋𝖔𝖗𝖆𝖒 𝖈𝖗𝖎𝖆𝖉𝖔𝖘 𝖓𝖆 𝖍𝖎𝖘𝖙𝖔́𝖗𝖎𝖆 𝖉𝖊 𝖙𝖔𝖉𝖆 𝕸𝖆𝖌𝖎𝖆. 𝕻𝖗𝖊𝖕𝖆𝖗𝖊𝖒-𝖘𝖊 𝖕𝖆𝖗𝖆 𝖔 𝖍𝖔𝖗𝖗𝖔𝖗 𝖖𝖚𝖊 𝖘𝖊 𝖆𝖕𝖗𝖔𝖝𝖎𝖒𝖆... 𝕾𝖊𝖒 𝖚𝖒 𝕽𝖊𝖎 𝖓𝖊𝖓𝖍𝖚𝖒 𝖉𝖊 𝖛𝖔𝖈𝖊̂𝖘 𝖕𝖔𝖉𝖊𝖗𝖆́ 𝖑𝖚𝖙𝖆𝖗.
+
+ㅤㅤOrdenou Gretel Von Faith, a Rainha das Bruxas, com a voz ecoando como um decreto absoluto enquanto seus olhos brilhavam intensamente. Sob o peso daquela presença avassaladora, as Formas Bruxas de Aster e Atlas desfez-se em poeira estelar, forçando ambos a retornarem às suas formas originárias enquanto caíam desacordados sobre o solo em ruínas.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤEnquanto a fortaleza de Haunted Peak respirava sob a benção de Vincent, o campo de batalha transformava-se em um espetáculo de violência visceral e poder absoluto.
+
+ㅤㅤNicholas Trimegistus atingia o Dragão Rubro com uma ferocidade tão sádica e brutal que era simplesmente desconfortável assistir. Com socos desferidos em uma cadência monstruosa, o rapaz estilhaçava as escamas ancestrais da besta galesa, rompendo tendões, triturando nervos e rasgando pedaços de carne como se estivesse devorando um banquete em meio ao caos. A luz que emanava de seu corpo intensificava-se a cada golpe, tornando-se um fulgor solar tão cegante que parecia rasgar a própria retina de quem ousasse olhar.
+
+ㅤㅤPouco adiante, Cael canalizava a essência gélida e absoluta da Entropia. A energia pálida dançaba em seus dedos enquanto ele forçava a lua nos céus a brilhar em padrões cabalísticos e ancestrais. Com os olhos tomados por uma luz insana e fascinante, o Amante dos Monstros recorreu à força mística do 𝐕𝐢𝐭𝐚𝐥𝐮𝐦 𝐕𝐢𝐭𝐚𝐥𝐢𝐬. Canalizando magia selvagem, ele interceptou a essência que corrompia a besta, rompendo o feitiço de controle imposto por Narkissus e purificando o dragão pálido. A criatura, agora livre da peia mental, recuou o olhar em muda surpresa para o garoto, cuja aura prateada moldava-se ao seu redor em uma imponente silhueta draconica guarnecida por longos chifres.
+
+ㅤㅤContudo, a trégua durou o espaço de um suspiro. Das dobras do véu, uma das manifestações sombrias de Sett irrompeu direto entre os irmãos. Um soco brutal atingiu o peito de Nicholas com força cataclísmica, arremessando-o longe, ao passo que as garras da Sombra abriram um corte profundo e sangrento na cintura de Cael.
+
+ㅤㅤAntes que a fúria do Deus Desmembrado pudesse capitalizar o golpe, Romulus Argento saltou à frente com agilidade letal. Lançando correntes compactas de sangue fresco a partir do solo, o preceptor chicoteou a criatura, rebatendo-a para longe com violência. Ao se virar por um instante para dar cobertura aos jovens, os irmãos Trimegistus puder-se flagrar um relance de profundo pesar e melancolia nos olhos de Romulus. Naquele semblante endurecido pela guerra, o preceptor enxergara seu próprio gêmeo, Remus, lembrando-se de como eles mesmos já haviam estado exatamente naquela posição de risco e união inquebrável. Até que eles tiveram que matar um ao outro. Balançou a cabeça para afastar àqueles pensamentos que o enfraqueciam. 
+
+ㅤㅤSett tentou avançar novamente, mas a resposta de Nicholas foi imediata e devastadora. O corpo do Trimegistus mais velho irrompeu em chamas tão intensas e puras que a escuridão foi varrida do perímetro. O calor descomunal corroeu instantaneamente o feitiço que ancorava aquele fragmento do Sankto aos Dragões de Gales, queimando e desfazendo quaisquer laços remanescentes. Ao seu lado, Romulus girou a lâmina hemomante nas mãos, observando os tecidos da carne de Cael se fechando através do 𝐕𝐢𝐭𝐚𝐥𝐮𝐦 𝐕𝐢𝐭𝐚𝐥𝐢𝐬 e sorrindo para os acalmar. 
+
+ㅤㅤ⸻ 𝐂𝐮𝐢𝐝𝐞𝐦 𝐮𝐦 𝐝𝐨 𝐨𝐮𝐭𝐫𝐨, 𝐨𝐤𝐚𝐲? 𝐍𝐨́𝐬 𝐣𝐚́ 𝐯𝐚𝐦𝐨𝐬 𝐝𝐚𝐫 𝐮𝐦 𝐣𝐞𝐢𝐭𝐨 𝐧𝐞𝐬𝐬𝐚 𝐦𝐞𝐫𝐝𝐚. — rosnou o Preceptor, encarando os garotos com firmeza antes de saltar de volta ao epicentro do combate.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤA magia feérica impregnava cada verso entoado por Jaciara Albuquerque, transformando a canção em uma ponte viva entre a terra, o firmamento e o poder primordial do Deus Cornífero. Suspensa no céu, com as asas abertas e os cabelos agitados pelo vento daquela noite caótica, a jovem edeniana assumia com bravura seu lugar como condutora suprema do ritual. No ápice da lua, os símbolos prateados responderam em uníssono, e a onda de energia feérica percorreu as raízes até convergir com as Linhas Ley do castelo. O ritual estava prestes a ser concluído com sucesso absoluto.
+
+ㅤㅤContudo, a brutalidade do caos não se entregaria facilmente. Aproveitando o segundo de vulnerabilidade em que Jaciara canalizava a última estrofe, a silhueta aterrorizante de Sett distorceu-se nas sombras. Em um bote veloz e silencioso, o Deus Desmembrado avançou por trás da garota, cravando suas garras sombrias com força predatória contra as costas dela. O golpe brutal rasgou a carne e estilhaçou as asas etéreas de mariposa em uma explosão de fragmentos luminosos. Mas a luz de Aradia e o sangue edeniano não se deixariam extinguir tão facilmente.
+
+ㅤㅤNo exato instante em que a dor ameaçava consumi-la, os olhos de Jaciara foram tomados por um brilho edênico e cegante. Milhares de novas mariposas e borboletas irromperam de seu próprio corpo em uma reação instintiva e cataclísmica. Estendendo a mão trêmula na direção da Sombra, Jaciara manipulou a essência do tempo, retrocedendo os segundos anteriores com uma onda de choque arcana. O ataque de Sett desfez-se no ar, voltando para trás como um eco corrompido, dando à garota o segundo exato de vantagem para se deslocar e escapar da trajetória letal das garras antes que o golpe real a atingisse.
+
+ㅤㅤNo segundo seguinte, a convergência atingiu seu ápice.
+ㅤㅤO Castelo de Haunted Peak inteiro reluziu em uma imponente e vibrante energia esmeralda. Os fios de pura magia fluíram furiosamente pelas Linhas Ley subterrâneas, fazendo o solo e as muralhas se agitarem. A partir das frestas da terra, Vincent Bourdreaux emergiu majestoso. Seu corpo estava revestido por uma armadura viva de madeira de freixo, adornado por longos chifres e coroado por uma diadema mística incrustada de joias raras em Jade, Ônix & Rubi. O castelo literalmente ganhou vida: as torres se reergueram, as pedras ancestrais se encaixaram com precisão mecânica, e a imensa fortaleza de Haunted Peak ergueu-se como uma divindade colossal acordada de seu longo sono.
+
+ㅤㅤEm meio ao fulgor da vitória, Vincent aproximou-se rapidamente de Jaciara. Com um movimento firme, segurou a mão da jovem aradiana, oferecendo-lhe um sorriso caloroso e genuinamente gentil que contrastava com a carnificina ao redor. Virando-se então para encarar a manifestação corrompida, o Sankto da Natureza elevou a voz, carregada de uma autoridade milenar que fez o ar estalar.
+
+ㅤㅤ⸻ 𝖁𝖔𝖈𝖊̂ 𝖓𝖆̃𝖔 𝖕𝖗𝖔𝖋𝖆𝖓𝖆𝖗𝖆́ 𝖊𝖘𝖘𝖊 𝖑𝖚𝖌𝖆𝖗 𝖊 𝖙𝖆𝖒𝖕𝖔𝖚𝖈𝖔 𝖆 𝖒𝖎𝖓𝖍𝖆 𝖈𝖆𝖗𝖓𝖊, 𝕾𝖊𝖙𝖙. 𝕰𝖚 𝖙𝖊 𝖉𝖊𝖘𝖈𝖔𝖓𝖏𝖚𝖗𝖔, 𝖊𝖝𝖊𝖈𝖗𝖔 𝖘𝖚𝖆 𝖉𝖊𝖘𝖌𝖗𝖆𝖈̧𝖆 𝖉𝖊 𝕳𝖆𝖚𝖓𝖙𝖊𝖉 𝕻𝖊𝖆𝖐 𝖊 𝖉𝖊 𝖒𝖊𝖚 𝖈𝖔𝖗𝖆𝖈̧𝖆̃𝖔, 𝖋𝖎𝖑𝖍𝖔ⵑ
+
+ㅤㅤAssim que a última palavra ecoou de seus lábios, uma onda de choque purificadora irradiou de Vincent e do castelo desperto. As trevas foram varridas com violência, dissipando e expulsando as sombras para fora de todos os domínios de Haunted Peak. Com a ameaça momentaneamente contida e o ritual concluído, a força que sustentava Jaciara esvaiu-se; as asas etéreas recolheram-se, e o corpo da garota tombou suavemente contra o chão seguro da torre.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤO silêncio da morte parecia definitivo sobre os escombros do Observatório, mas o destino recusava-se a aceitar o fim de Amália Blackbeak. Onde havia apenas sangue e um crânio fraturado, uma névoa densa e gélida começou a pulsar. Os olhos sem vida da garota abriram-se de repente, brilhando com uma energia selvagem, primordial e indomável. Erguendo-se do chão estilhaçado, ela não estava sozinha: dezenas de corvos de penugens úmbrias e profundas brotaram das sombras ao seu redor, revoando em um balé macabro e obediente. Com um gesto firme das mãos, Amália assumiu o controle total das aves, distribuindo-as com precisão cirúrgica em direção aos corpos caídos de seus companheiros, enquanto imbuía seus próprios Fios do Destino com uma carga violenta de mana pura.
+
+ㅤㅤComo uma ode desafiadora contra o próprio além, Amália recusou as 𝕸𝖔𝖗𝖙𝖆𝖑𝖍𝖆𝖘 que tentavam envolver seus aliados. Seus dedos tornaram-se completamente negros, consumidos por uma necrose mística enquanto ela puxava os fios invisíveis do destino e rasgava as 𝕸𝖔𝖗𝖙𝖆𝖑𝖍𝖆𝖘 com fúria, forçando a própria 𝕸orte a recuar diante de sua obstinação.
+
+ㅤㅤPara sustentar o milagre, ela canalizou sua sede de poder: sugando a vitalidade de todas as plantas e vinhas ao redor até reduzi-las a pó cinzento, ela estendeu sua colheita até o corpo colossal do Dragão Rubro caído logo ali, drenando a energia residual da besta mítica para alimentar sua mana.
+
+ㅤㅤA terra tremeu e os corpos caídos começaram a se erguer. Embora as marcas brutais de seus ferimentos mortais ainda estamparassem suas carnes, eles conseguiram se levantar a tempo — exatamente quando uma presença imponente e solene se materializou no campo de batalha, como se tivesse sido convocada pelo próprio chamado de Amália: Hector Harkonnen havia chegado.
+
+ㅤㅤMovendo-se com urgência, Hector ajoelhou-se junto a Francis, cujas vísceras espalhadas começavam a se realinhar sob o toque de sua magia de cura. Em simultâneo, brotaram flores místicas e pulsantes do solo: uma sobre Edgar, outra sobre Mina, e mais uma sobre Meliorn, cujos olhos se abriram em um suspiro arquejante enquanto despertavam do torpor da morte. Contudo, enquanto Hector os trazia de volta à vida, seu semblante fechou-se em um pesar evidente; por mais poderoso que fosse, havia um limite intransponível naquela magia — ele não conseguia apagar as cicatrizes profundas deixadas em seus corpos. Enquanto isso, o destino de Howlite exigia uma medida drástica. Antes que o corpo do Tecelão do Silêncio pudesse perecer de vez após ter o crânio estilhaçado, uma planta carnívora gigantesca irrompeu do chão e engoliu seus restos. Imediatamente, a essência lunar e gélida de Cael Trimegistus envolveu o vegetal em um feixe de luz prateada, enquanto os fios de Amália teciam-se complexos e firmes ao redor da planta. Em um eco de magia e terra, o organismo afundou lentamente no solo do Observatório, levando consigo o corpo de Howl para ser refeito nas profundezas da terra.
+
+ㅤㅤAo horizonte, no entanto, duas outras figuras se aproximaram. Um rapaz de cabelos negros e olhos claros surgia, montado em uma espécime de besta quimérica moldada a partir de Ossos e de Sangue, tendo em suas mãos e seu peitoral exposto inúmeras marcas de códices cabalísticos enquanto ele se aproximava da destruição. Do lado dele havia uma donzela emplumada, com asas iridescentes cobrindo parte de seu rosto, que revelava-se num sorriso gentil enquanto estendia os dedos para ajudar Amália a se erguer. O rapaz estendeu a mão para terra, moldando dos restos mortais de Howl um crânio enquanto a garota o segurava em mãos, sussurrando algo, e inúmeros pássaros beija-flor voavam ao redor dos Ossários. 
+
+ㅤㅤㅤ⸻  𝐍𝐨𝐬 𝐩𝐞𝐫𝐝𝐨𝐞𝐦 𝐩𝐞𝐥𝐚 𝐝𝐞𝐦𝐨𝐫𝐚. 𝐓𝐢𝐯𝐞𝐦𝐨𝐬 𝐪𝐮𝐞 𝐞𝐧𝐟𝐫𝐞𝐧𝐭𝐚𝐫 𝐮𝐦 𝐞𝐱𝐞́𝐫𝐜𝐢𝐭𝐨 𝐝𝐞 𝐬𝐨𝐦𝐛𝐫𝐚𝐬 𝐥𝐚́ 𝐩𝐞𝐥𝐨 𝐜𝐚𝐦𝐢𝐧𝐡𝐨 𝐞 𝐩𝐞𝐠𝐚𝐫 𝐚̀𝐪𝐮𝐞𝐥𝐞𝐬 𝐝𝐨𝐢𝐬 𝐚𝐥𝐢. ⸻ 𝐌𝐚𝐥𝐭𝐡𝐮𝐬 𝐆𝐫𝐞𝐲𝐰𝐚𝐫𝐝 comentou de modo carismático, apontando para os corpos de Aster e Atlas, que estavam envoltos numa cúpula de água estígia. 
+
+ㅤㅤㅤ⸻ 𝐈𝐫𝐦𝐚̃. 𝐕𝐨𝐜𝐞̂ 𝐞𝐬𝐭𝐚́ 𝐛𝐞𝐦? 𝐍𝐨́𝐬 𝐯𝐢𝐦𝐨𝐬 𝐨 𝐛𝐫𝐞𝐮 𝐬𝐞 𝐚𝐩𝐫𝐨𝐱𝐢𝐦𝐚𝐧𝐝𝐨 𝐚𝐨 𝐡𝐨𝐫𝐢𝐳𝐨𝐧𝐭𝐞, 𝐟𝐢𝐜𝐚𝐦𝐨𝐬 𝐩𝐫𝐞𝐨𝐜𝐮𝐩𝐚𝐝𝐨𝐬. ⸻ 𝐂𝐨𝐫𝐝𝐞𝐥𝐢𝐚 𝐂𝐥𝐚𝐰𝐭𝐡𝐨𝐫𝐧𝐞 segurou de modo gentil nas mãos de Amália, preocupada com a irmã mais nova. 
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
+
+ㅤㅤEm um recanto etéreo e isolado do tempo, alheio ao caos que consumia Haunted Peak, a Mater Maleficarum, Pandora Beauchamp, movia-se em um silêncio solene. Envolta por um manto negro profundo que parecia engolir a própria luz, ela segurava entre os dedos um fragmento palpitante de sombras puras, aproximando-o perigosamente da superfície de um grande caldeirão em ebulição. Seus traços pareciam ancorados em um plano distante, protegidos e revestidos por milhares de sigilos arcanos e inscrições de ouro cravejado que formavam o complexo alfabeto Khemista sobre sua pele e vestes.
+
+ㅤㅤ⸻ 𝐄𝐥𝐞 𝐞𝐬𝐭𝐚́ 𝐜𝐚𝐝𝐚 𝐝𝐢𝐚 𝐦𝐚𝐢𝐬 𝐩𝐫𝐨́𝐱𝐢𝐦𝐨 𝐝𝐞 𝐜𝐡𝐞𝐠𝐚𝐫 𝐚𝐭𝐞́ 𝐨𝐬 𝐁𝐞𝐥𝐧𝐚𝐝𝐞𝐬 𝐞 𝐚̀𝐬 𝐂𝐚𝐛𝐞𝐜̧𝐚𝐬 𝐝𝐚 𝐁𝐞𝐬𝐭𝐚... 𝐍𝐚̃𝐨 𝐩𝐨𝐝𝐞𝐦𝐨𝐬 𝐝𝐞𝐢𝐱𝐚𝐫 𝐪𝐮𝐞 𝐢𝐬𝐬𝐨 𝐚𝐜𝐨𝐧𝐭𝐞𝐜̧𝐚. 𝐄𝐦𝐛𝐨𝐫𝐚 𝐚 𝐯𝐢𝐨𝐥𝐞̂𝐧𝐜𝐢𝐚 𝐬𝐞𝐦𝐩𝐫𝐞 𝐭𝐞𝐧𝐡𝐚 𝐝𝐢𝐭𝐚𝐝𝐨 𝐨 𝐩𝐞𝐫𝐜𝐮𝐫𝐬𝐨 𝐝𝐨 𝐦𝐮𝐧𝐝𝐨, 𝐞𝐮 𝐫𝐞𝐧𝐞𝐠𝐨-𝐚 𝐪𝐮𝐚𝐧𝐝𝐨 𝐚𝐝𝐯𝐞́𝐦 𝐝𝐚𝐬 𝐭𝐫𝐚𝐦𝐨́𝐢𝐚𝐬 𝐩𝐞́𝐫𝐟𝐢𝐝𝐚𝐬 𝐝𝐞𝐬𝐬𝐞 𝐋𝐨𝐮𝐜𝐨.
+
+ㅤㅤCom um gesto lento, Pandora desviou o olhar para o caldeirão. Refletidas na superfície do líquido fervente, através de símbolos alquímicos blindados contra qualquer tentativa de rastreio, silhuetas de figuras mascaradas encaravam-na de volta. Sem desatar a atenção daquela visão, ela ergueu o queixo e chamou por cima do próprio ombro.
+
+ㅤㅤ⸻ 𝕬𝖒𝖆𝖗𝖆𝖓𝖙𝖍, 𝖖𝖚𝖊𝖗𝖎𝖉𝖆?
+
+ㅤㅤDas dobras da penumbra, uma garota de cabelos loiros impecavelmente penteados emergiu. Vestida com trajes de um negro absoluto, ela carregava um par de pistolas de ferro pesado em suas mãos e um cetro dourado preso à cintura. Sem pressa, Amaranth retirou um cigarro dos lábios, soprou uma espiral densa de fumaça e fitou Pandora com um olhar cortante e calculista.
+
+ㅤㅤ⸻ 𝐒𝐮𝐚 𝐦𝐚̃𝐞 𝐭𝐞 𝐩𝐫𝐞𝐩𝐚𝐫𝐨𝐮 𝐛𝐞𝐦. 𝐕𝐨𝐜𝐞̂ 𝐢𝐫𝐚́ 𝐚𝐭𝐫𝐚́𝐬 𝐝𝐞 𝐁𝐢𝐬𝐡𝐨𝐩 𝐞 𝐃𝛊́𝐚𝐳 𝐞 𝐝𝐞𝐩𝐨𝐢𝐬 𝐦𝐚𝐫𝐜𝐡𝐚𝐫𝐚́ 𝐩𝐚𝐫𝐚 𝐇𝐚𝐮𝐧𝐭𝐞𝐝 𝐏𝐞𝐚𝐤 𝐩𝐚𝐫𝐚 𝐞𝐧𝐜𝐨𝐧𝐭𝐫𝐚𝐫 𝐬𝐞𝐮𝐬 𝐢𝐫𝐦𝐚̃𝐨𝐬. 𝐄́ 𝐡𝐨𝐫𝐚 𝐝𝐨𝐬 𝕱𝖎𝖑𝖍𝖔𝖘 𝖉𝖆 𝖀𝖒𝖇𝖗𝖆 𝐢𝐧𝐭𝐞𝐫𝐯𝐢𝐫𝐞𝐦 𝐧𝐨𝐬 𝐩𝐥𝐚𝐧𝐨𝐬 𝐝𝐞 𝐒𝐞𝐭𝐭. 𝐕𝐚́ 𝐨 𝐦𝐚𝐢𝐬 𝐫𝐚́𝐩𝐢𝐝𝐨 𝐩𝐨𝐬𝐬𝛊́𝐯𝐞𝐥ⵑ
+
+ㅤㅤUm sorriso animado e afiado curvou os lábios da jovem. Erguendo a mão direita, revelou a pele inteiramente marcada pelas runas e marcas profanas de um demônio primitivo, que pulsavam com uma energia sutil. O som ritmado e seco de seus saltos estalou contra o piso de pedra enquanto ela se aproximava de Pandora com passos calmos e deliberados.
+
+ㅤㅤ⸻ 𝐒𝐢𝐦, 𝕸𝐚𝐝𝐚𝐦𝐞 𝕸𝐚𝐥𝐞𝐟𝐢𝐜𝐚𝐫𝐮𝐦. 𝐍𝐨́𝐬 𝐢𝐫𝐞𝐦𝐨𝐬 𝐪𝐮𝐞𝐢𝐦𝐚𝐫 𝐭𝐨𝐝𝐨𝐬 𝐚𝐪𝐮𝐞𝐥𝐞𝐬 𝐝𝐞𝐬𝐠𝐫𝐚𝐜̧𝐚𝐝𝐨𝐬.
+
