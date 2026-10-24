@@ -86,3 +86,20 @@ Respeitando o período retardatário de dor e as queimaduras provocadas pela cha
 ⠀⠀⠀⠀⠀⸻ 𝓐𝖇𝖊𝖑 𝖊 𝕷𝖎𝖑𝖎𝖙𝖍 𝖙𝖊 𝖕𝖗𝖊𝖓𝖉𝖊𝖗𝖆𝖒 𝖆𝖖𝖚𝖎. 𝕿𝖊 𝖆𝖇𝖆𝖓𝖉𝖔𝖓𝖆𝖗𝖆𝖒. 𝕸𝖆𝖘 𝖊𝖚 𝖓𝖆̃𝖔 𝖘𝖔𝖚 𝖈𝖔𝖒𝖔 𝖊𝖑𝖊𝖘... 𝖏𝖚𝖓𝖙𝖊-𝖘𝖊 𝖆 𝖒𝖎𝖒, 𝖊 𝖊𝖚 𝖙𝖊 𝖋𝖆𝖗𝖊𝖎 𝖒𝖆𝖎𝖘 𝖖𝖚𝖊 𝖘𝖔𝖒𝖊𝖓𝖙𝖊 𝖚𝖒 𝕱𝖎𝖑𝖍𝖔 𝖉𝖆 𝕸𝖔𝖗𝖙𝖊. 𝕰𝖚 𝖙𝖊 𝖙𝖔𝖗𝖓𝖆𝖗𝖊𝖎 𝖚𝖒 𝖉𝖔𝖘 𝖒𝖊𝖚𝖘 𝕰𝖘𝖙𝝸́𝖌𝖎𝖔𝖘.𝖊.
 ⠀⠀⠀⠀⠀A mulher sorriu de modo doce, perigoso, as múltiplas mãos tocando o rosto do 𝕳𝖔𝖒𝖊𝖒 𝕰𝖓𝖋𝖔𝖗𝖈𝖆𝖉𝖔 enquanto os cabelos negros da divina caíam por cima dos ombros, as longas asas repletas de olhos se abrindo na medida em que o corpo de Logan Brumaire caía ao solo, diante a figura demoníaca que abria bem a bocarra, agarrando-o e preenchendo o ambiente com seus gritos enquanto mastigava o ombro do Nexus. E, ali, 𝕰𝖗𝖎𝖘𝖍𝖎𝒌𝖌𝖆𝖑 observava tudo com prazer enquanto a visão era rompida.
 Agora, todos estavam nos domínios do Suicídio, e todos sofreriam as penalidades daquela mansão maldita.
+
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤMesmo após a onda restauradora de Nicholas Trimegistus fechar as bolhas e dissipar as queimaduras que haviam consumido sua pele entre os fios e as asas negras, o sistema nervoso de Amália ainda cobrava o preço do choque: seus dedos tremiam pelo espasmo residual de ter ardido viva a um passo da Morte, e um suor frio escorria por sua nuca enquanto o estômago revirava diante do sangue de Anton Vasiliev e do peito aberto de Nicholas rompendo o Selo de Moiragetes para esmagar Cornelius Beauchamp contra o solo. Quando o nome sussurrado pelos corvos — Homem Enforcado — ganhou forma naquela silhueta acorrentada de dez metros que escapou por trás de Elius e tragou todos para o interior da Casa da Colina, um calafrio cortante percorreu a espinha da Neófita de ponta a ponta. O ar podre das paredes envelhecidas e o coro incessante dos inúmeros suicidas invadiram seus ouvidos como agulhas de gelo, fazendo suas têmporas latejarem sob a pressão dupla da mansão maldita e da trama fática; ainda assim, em sua primeira ação, Amália cravou as unhas nas próprias palmas para não ceder à vertigem e sustentou a concentração em fate's weave: shadow crows, mantendo a barreira defensiva de sete metros e a revoada densa de corvos de sombras fechadas ao redor de si e dos aliados próximos — como seu primo Edgar — para que o bater de asas e a teia espiritual amortecessem o assédio acústico dos sussurros suicidas enquanto o estigma esquelético de speak no evil pulsava em suas mãos, alerta a qualquer ilusão ou armadilha mental daquele domínio.
+ㅤㅤㅤ
+ㅤㅤㅤAmália sacou a lâmina curta prateada da cintura em guarda baixa e recuou meio passo até encostar as costas na penumbra de uma das paredes envelhecidas da mansão, escondendo a ausência da própria sombra enquanto aplicava sua leitura tática sobre o salão decrépito. Ela não precisava adivinhar quem era o Senhor do Vazio de rosto jovial e olhos claros por trás da máscara de ferro: reconhecera o Homem Enforcado do espelho espectral que Ettore Monzepat lhe mostrara em Sorrow Peak, quando a entidade ainda esmurrava o Véu ao lado de Alec Crane tentando escapar do submundo — e agora compreendia que ele havia usado a luz e a sombra do próprio Arquimestre Cornelius como casca para furar o cárcere. Puxando o ar gélido para os pulmões apesar do tremor nos joelhos e do peso fúnebre que tentava arrastar a mente dos presentes para o desespero, Amália ergueu a voz firme por dentro da cúpula de sete metros, usando sua liderança para ancorar a lucidez dos colegas contra a penalidade psíquica da Casa da Colina:
+ㅤㅤㅤ
+ㅤㅤㅤ— Fechem os ouvidos para as vozes das paredes e não saiam de dentro da barreira!
+ㅤㅤㅤ
+─── ❖ ── ✦ ──
+ㅤㅤㅤ
+Resumo: Amália mantém a barreira de 7 metros e a revoada de corvos de sombras ao redor de si e do grupo próximo para abafar os sussurros dos suicidas e proteger o perímetro, com o passivo speal no evil ativo nas palmas contra ilusões e investidas na mansão.
+ㅤㅤㅤ
+Recursos Utilizados no Turno:
+⤿ Poder Ativo: fate's weave: shadow crows (Sustentação — Turno 2/3: barreira defensiva de 7m + corvos de sombras).
+⤿ Poder Passivo: speak no evil (Estigma espectral alerta contra ilusões/trapaças e ataques).
+⤿ Perícias: Análise Tática (Inteligência 5), Liderança (Carisma 5) e Assassino.
