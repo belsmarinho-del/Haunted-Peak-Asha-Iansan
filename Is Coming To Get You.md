@@ -110,6 +110,27 @@
 ⠀⠀⠀⠀⠀Edgar conjurou o solo de nuvens e lançou-se aos céus, voando velozmente para longe dali e abrindo uma vantagem crucial. Contudo, a prisão mística durou pouco. Com um urro ensurdecedor, Gareth estourou a barreira de areia e nuvens em uma única porrada brutal, estilhaçando a técnica de Edgar. Sem hesitar, o guerreiro corpulento aterrissou disparando em alta velocidade, correndo implacavelmente no encalço do filho. Enquanto Edgar voava pelos céus distorcidos, sentindo a energia dos ramos gnósticos vibrar incontrolavelmente em suas veias, o estrondo dos passos de seu pai ecoava logo abaixo, aproximando-se a cada segundo.
 ㅤㅤㅤNicholas Trismegisto desceu na direção de Gareth Belnades seu próprio tio com o intuito de atrapalhá-lo. Com o corpo preenchido pelas chamas primevas do Ⲋⲟⳑ mas antes que ele pudesse fazer qualquer coisa, ele era surpreendido com o movimento rápido do Ⲟⲣⲏⲇⲓⲙ que ao balançar a sua clava bateu fortemente contra o rosto do homem explodindo a sua cabeça e arremessando a seu corpo quilômetros de distância em direção ao vilarejo onde acontecia o festival. Enquanto ele voava sentia a sua magia subitamente voltando a sua normalidade. Ele tinha um controle maior sobre os 𝐫𝐚𝐦𝐨𝐬 𝐠𝐧𝐨́𝐬𝐭𝐢𝐜𝐨𝐬 do que antes, ele não sabia dizer o que estava acontecendo mas sabia que tinha influência da sua mãe naquilo, que não importa o que aconteça ela estaria ali, protegendo-o, cuidando dele.
 
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤO sibilar coletivo interrompe por um instante o riso que arranha os pensamentos de Amália. Ela não o toma de imediato como um ataque: as dezenas de vozes ocultas chamam por Lamashthu, e a proximidade de Scarlett com aquele clamor torna precipitado tratar as criaturas como inimigas. Amália mantém-se junto de Elarith, sem presumir o que qualquer uma das duas fará, enquanto acompanha Scarlett em seu campo de visão por entre as casas tortas do vilarejo.
+ㅤㅤㅤ
+ㅤㅤㅤAmália usa Análise Tática para comparar o som que vem de todas as direções com o que consegue observar. O ar rarefeito, o cheiro de ozônio, sangue e terra molhada, as figuras petrificadas e a névoa que encobre a mata entram numa leitura rápida; ela registra os pontos de cobertura e mantém a cúpula cristalina no foco, sem concluir se o homem adormecido está preso, protegido ou servindo de chamariz. As ossadas, as vinhas espinhosas e as plumas gnósticas que envolvem a redoma parecem formar camadas distintas, mas Amália não toca nelas nem tenta rompê-las sem entender o que as sustenta.
+ㅤㅤㅤ
+ㅤㅤㅤ— Há um chamado vindo da mata, mas ainda não sei se é ameaça ou pedido de socorro. E aquele homem está protegido por mais de uma camada. — A voz de Amália sai baixa e firme, dirigida às companheiras sem exigir que sigam sua leitura. — Vou manter uma cobertura enquanto observamos. Não precisamos atacar às cegas.
+ㅤㅤㅤ
+ㅤㅤㅤAmália abre as mãos e entrelaça os fios invisíveis da trama fática. A vibração percorre as sombras do chão e se ergue diante de sua posição numa barreira curva de até sete metros, deixando a retaguarda livre para que ela, Elarith ou Scarlett possam escolher como se reposicionar. Os fios sustentam o anteparo como uma trama escura e compacta; Amália não os estica para além do necessário nem tenta alcançar a cúpula com eles. Amália mantém a concentração, mas não projeta os corvos contra as vozes ocultas nem ataca as figuras petrificadas: ainda não sabe quem ou o que elas são.
+ㅤㅤㅤ
+ㅤㅤㅤO riso e a areia onírica continuam a pressionar sua consciência. Amália ancora-se no próprio nome e no cheiro de terra molhada, mantendo a atenção no que consegue observar. Sua lâmina curta prateada continua embainhada enquanto ela sustenta a barreira e observa a cúpula, pronta para reagir ao que de fato se aproxime.
+ㅤㅤㅤ
+─── ❖ ── ✦ ──
+ㅤㅤㅤ
+Resumo: Amália analisa o chamado e as camadas ao redor da cúpula com Análise Tática e ergue uma barreira defensiva com fate's weave: shadow crows, mantendo a retaguarda livre e sem atacar entidades cuja intenção desconhece.
+ㅤㅤㅤ
+Recursos utilizados no turno:
+⤿ Poder ativo: fate's weave: shadow crows — barreira defensiva de até 7 metros, sustentada por concentração (até 3 turnos).
+⤿ Perícia: Análise Tática — avaliação do chamado, da cúpula, dos riscos e da cobertura.
+⤿ Item: nenhum utilizado; a Lâmina Curta Prateada permanece embainhada.
+
 ㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺‧☽಄☾‧⁺˖⋆
 ㅤㅤㅤA floresta respondeu à cautela de Elarith com silêncio. Ali, o reflexo de Elarith no vidro deixou de acompanhá-la; sua imagem permaneceu parada quando ela se moveu, depois inclinou o rosto sozinha. Os cabelos refletidos ganharam primeiro um brilho avermelhado, profundo como ferrugem molhada, e a pele começou a envelhecer diante de seus olhos, adquirindo sulcos, manchas e uma palidez enfermiça. Quando o reflexo finalmente ergueu o queixo, não era mais Elarith quem a observava do outro lado do cristal. Aqueles traços ela conhecia muito bem; aquele rosto envelhecido, os cabelos ruivos, a presença sufocante escondida sob uma aparência de decrepitude: 𝕭𝖆𝖗𝖇𝖊𝖑𝖔𝖙𝖍.
 ㅤㅤㅤA mulher não estava verdadeiramente dentro do túmulo. Sua imagem parecia existir apenas na superfície dele, presa entre reflexo e sombra, mas os olhos dourados fixaram-se diretamente nos de Elarith com uma lucidez perturbadora. Barbeloth sorriu. Lentamente, levou o indicador aos próprios lábios.
