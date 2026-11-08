@@ -302,3 +302,27 @@ Recursos Utilizados:
 ㅤㅤㅤEnquanto a Anciã falava com sua neta, a figura alada de 𝕮𝖔𝖗𝖉𝖊𝖑𝖎𝖆 𝕮𝖑𝖆𝖜𝖙𝖍𝖔𝖗𝖓𝖊 se lançou em direção a Atlas e Dianus, puxando ambos da zona de ataque de Leopold e os jogando contra as costas de sua avó enquanto ela moldava uma esfera onírica no corpo do Lensherr, contendo seus movimentos, mas, a cada golpe que ele dava, a estrutura começava a estilhaçar.
 
 ㅤㅤㅤ⸻ 𝖁𝖆̃𝖔 𝖑𝖔𝖌𝖔ⵑ 𝕺 𝕽𝖎𝖘𝖔𝖓𝖍𝖔 𝖊𝖘𝖙𝖆́ 𝖆𝖕𝖗𝖔𝖓𝖙𝖆𝖓𝖉𝖔 𝖆𝖎𝖓𝖉𝖆 𝖊 𝖊𝖚 𝖓𝖆̃𝖔 𝖕𝖔𝖘𝖘𝖔 𝖘𝖊𝖌𝖚𝖗𝖆𝖗 𝕷𝖊𝖔𝖕𝖔𝖑𝖉 𝖕𝖔𝖗 𝖒𝖚𝖎𝖙𝖔 𝖙𝖊𝖒𝖕𝖔. ⸻ e, conforme ela falava, acima de si, o corpo de 𝕲𝖚𝖎𝖓𝖊𝖛𝖊𝖗𝖊 𝖂𝖎𝖓𝖌𝖗𝖆𝖛𝖊 surgia, brilhando em rubro, os olhos amarelos e rosados encarando Cordelia enquanto uma horda de morcegos rodeavam-na.
+
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 𝔅𝔩𝔞𝔠𝔨𝔟𝔢𝔞𝔨 ── ✦ ── ❖ ───
+ㅤㅤㅤ
+ㅤㅤㅤO calor de Regina ainda parecia desenhar um caminho até Amália quando o fogo se desfez em asas, patas e formas impossíveis, antes de alcançá-la. A súbita mudança não apagou a memória da ameaça: por um instante, ela sentira as chamas procurando-a através das aberturas da trama, e vira a avó surgir entre ela e a destruição. O rosto de Regina, a ordem selvagem que fizera a ofensiva ceder e a chegada colossal de Mary Ann eram fatos; o motivo por trás de cada gesto ainda não era algo que Amália pudesse conhecer.
+ㅤㅤㅤ
+ㅤㅤㅤEntão a voz da avó atravessou o estrondo: era preciso tirar o Príncipe das Bruxas dali antes que o Gato Risonho o controlasse. As palavras não vieram como um pedido aberto à discussão. Amália reconheceu a urgência em cada uma delas e, apesar da confusão que ainda lhe apertava o peito por ter sido chamada de filha por Regina, não hesitou. Dianus era o alvo da ordem; a prioridade, sair dali com ele antes que o inimigo o alcançasse.
+ㅤㅤㅤ
+ㅤㅤㅤAmália ergueu a mão, e quatro corvos de três metros irromperam ao redor dela. As penas negras absorveram a luz irregular da floresta, enquanto bicos e garras de ouro faiscaram como metal recém-retirado da forja. Em vez de lançá-los contra Regina ou as outras bruxas, Amália lhes deu um comando defensivo: dois se colocariam à frente, os outros cobririam os flancos, braços erguidos em bloqueios rígidos, formando uma escolta móvel entre ela e as ameaças visíveis. Os corvos não tocaram em ninguém; Amália não tentou transmutar carne ou interromper o poder de Regina. Sua guarda era uma tentativa de abrir espaço para obedecer, não a certeza de que poderia deter qualquer magia.
+ㅤㅤㅤ
+ㅤㅤㅤA visão tática de Amália percorreu o campo em um relance: Elarith estava junto do caixão rompido, Dianus permanecia no centro do conflito e Atlas se encontrava sob a investida de Leopold. Ela não conhecia tudo o que havia acontecido antes de chegar àquele ponto — tampouco sabia o que Elarith ocultava —, mas conseguia distinguir a ordem imediata de sua avó do restante do caos. Não atacaria Regina por vingança, nem tentaria arrancar Elarith do caminho à força. O obstáculo agora era o combate em torno do Príncipe e a possibilidade de o Gato Risonho alcançá-lo.
+ㅤㅤㅤ
+ㅤㅤㅤCom os quatro corvos mantendo a formação defensiva, Amália lançou-se pelo trecho livre do terreno na direção de Dianus. Não tentou atravessar a área ocupada por Atlas ou por Leopold, nem presumiu que chegaria ao corpo sem oposição. A lâmina curta prateada permaneceu embainhada; suas mãos ficaram livres para alcançar o Príncipe assim que pudesse fazê-lo sem quebrar a guarda. O passo era firme, embora o calor residual ainda mordesse sua pele e o eco da palavra filha disputasse espaço com a ordem da avó.
+ㅤㅤㅤ
+ㅤㅤㅤ— Entendido, vó. Vou tirá-lo daqui. — a promessa foi curta, lançada por cima do ombro, sem exigir resposta. Então Amália voltou o rosto para Regina por um único instante. — Não confunda isso com escolher você. Eu estou obedecendo à minha avó.
+ㅤㅤㅤ
+ㅤㅤㅤOs quatro corvos acompanharam seu avanço, mantendo-se como cobertura e prontos para bloquear ou responder a uma investida, sem que Amália afirmasse que algum golpe seria interceptado. Ela seguiu em direção a Dianus para cumprir a ordem de Mary Ann, atenta às ameaças que ainda podiam cruzar seu caminho.
+ㅤㅤㅤ
+─── ❖ ── ✦ ──
+ㅤㅤㅤ
+Resumo: Amália reage à ofensiva de Regina sem presumir conhecer suas motivações. Seguindo a ordem explícita de Mary Ann, invoca quatro Corvos de Midas em formação defensiva e usa seu segundo movimento para avançar em direção a Dianus, o Príncipe das Bruxas.
+ㅤㅤㅤ
+Recursos Utilizados:
+⤿ Poder ativo — karate crows of Midas: invocação dos quatro corvos de três metros, usados como escolta defensiva e para tentar bloquear ameaças. Amália não ordena que toquem nas bruxas, portanto não tenta transmutar membros em ouro.
+⤿ Perícia — Análise Tática: avaliação rápida das posições de Dianus, Elarith, Atlas, Leopold e das rotas de aproximação, sem atribuir a Amália conhecimento oculto sobre as motivações de Elarith ou Regina.
