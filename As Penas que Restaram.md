@@ -102,3 +102,34 @@ Obs: Esta cena se passa após os acontecimentos em ''Is Coming To Get You.md''
 
 ㅤㅤㅤ⸻ 𝖁𝖔𝖈𝖊̂ 𝖉𝖊𝖛𝖊 𝖒𝖊 𝖊𝖓𝖙𝖊𝖓𝖉𝖊𝖗, 𝖓𝖆̃𝖔? 𝕾𝖔𝖇𝖗𝖊 𝖔𝖘 𝕻𝖊𝖗𝖕𝖊́𝖙𝖚𝖔𝖘, 𝖆𝖋𝖎𝖓𝖆𝖑, 𝖘𝖚𝖆 𝕾𝖆𝖓𝖐𝖙𝖆, 𝖆 𝖉𝖔𝖈𝖊 𝕮𝖑𝖎𝖔𝖉𝖍𝖓𝖆, 𝖊𝖗𝖆 𝖚𝖒𝖆 𝖉𝖊𝖑𝖊𝖘... 𝖆 𝖕𝖗𝖔́𝖕𝖗𝖎𝖆 𝖊𝖓𝖈𝖆𝖗𝖓𝖆𝖈̧𝖆̃𝖔 𝖉𝖔 𝕯𝖊𝖘𝖙𝖎𝖓𝖔. ⸻ disparou Mary-Ann em um tom atropelado, dando um passo para trás enquanto a aura iridescente e gnóstica ao seu redor começava a cintilar de forma instável, ansiosa por se dissolver de volta nas brumas do sonho.
 
+─── ❖ ── ✦ ── 𝔄𝔪𝔞́𝔩𝔦𝔞 ℭ𝔩𝔞𝔴𝔱𝔥𝔬𝔯𝔫𝔢 ── ✦ ── ❖ ───
+ㅤㅤ
+ㅤㅤ𝔄mália afrouxou os dedos em torno da xícara, temendo quebrar a porcelana. O aroma de camomila ainda chegava até ela, mas já não bastava para abafar as perguntas que lhe apertavam a garganta. Observou o brilho instável ao redor da avó e a lâmina onírica em sua mão, sem tentar impedi-la de partir.
+ㅤㅤ
+ㅤㅤ𝔔ueria perguntar mais sobre Regina, sobre Godfrey e sobre o perigo que as esperava. Mesmo assim, reconhecia a saudade naquelas palavras. Não lhe cabia exigir que Mary-Ann permanecesse longe de quem amava.
+ㅤㅤ
+ㅤㅤ— Não precisa pedir perdão, vovó. Espero que consiga reencontrar Morpheus em segurança. — um sorriso breve e cansado surgiu em seus lábios. — E... Não vou julgar a senhora por amar alguém. Mas confesso que não sei tanto sobre os Perpétuos quanto a senhora parece imaginar.
+ㅤㅤ
+ㅤㅤ𝔒 nome de Clíodhna fez seus dedos buscarem, por instinto, uma das cicatrizes junto à têmpora. Amália sabia que a Matrona era o próprio Destino; carregava no corpo as marcas daquela ligação. Entretanto, havia uma palavra que não conseguia ignorar.
+ㅤㅤ
+ㅤㅤ— A senhora disse que ela era uma deles... Aconteceu alguma coisa com a minha Matrona? Aquilo que está se aproximando também pode alcançá-la?
+ㅤㅤ
+ㅤㅤ𝔈la olhou para Cordélia, recordando as asas feridas, e manteve a mão livre próxima ao próprio corpo, sem tomar a da irmã. A dor nas articulações ainda tornava cada movimento mais lento, mas não diminuía sua vontade de ficar.
+ㅤㅤ
+ㅤㅤ— Vou ficar com Cordélia, se ela quiser minha companhia. Só me diga, por favor: há algo que eu possa fazer para protegê-la enquanto a senhora estiver no Mundo Onírico?
+ㅤㅤ
+ㅤㅤ𝔄mália aproximou a xícara do peito, deixando o calor atravessar os dedos rígidos. Havia medo em seu olhar, mas também paciência; permaneceria ali, sem tentar apressar uma resposta nem impedir a partida da avó.
+
+ㅤㅤㅤㅤㅤㅤ⛧⃝𓄃 𝑵𝑨𝑹𝑹𝑨𝑪̧𝑨̃𝑶 ⋆˖⁺͎☽಄☾‧⁺˖⋆
+
+ㅤㅤMary-Ann parou o movimento de retirada por um breve segundo, soltando um suspiro leve e quase divertido diante da expressão de dúvida da neta. Com passos curtos e silenciosos, a 𝕭𝖗𝖚𝖝𝖆 𝖉𝖔𝖘 𝕾𝖔𝖓𝖍𝖔𝖘 aproximou-se de Amália, erguendo a mão enluvada de renda para fazer um carinho suave e maternal em sua face cansada, afagando-lhe a bochecha com a delicadeza digna de uma avó.
+
+ㅤㅤ⸻ Não sabe? Oh, meu corvinho, você deveria! — murmurou ela, com o tom misturando um carinho e uma ponta de ironia. — Olha, os 𝕻𝖊𝖗𝖕𝖊́𝖙𝖚𝖔𝖘 são presentes em nossa família fazem muito tempo... E eu pensei que soubesse, sobre como a família Vasiliev, a da sua mãe, fez um acordo com 𝕯𝖊𝖘𝖊𝖏𝖔, para que seus dons fossem ainda mais fortalecidos. Afinal; o 𝖖𝖚𝖊 𝖊́ 𝖒𝖆𝖎𝖘 𝖆𝖒𝖆𝖑𝖉𝖎𝖈̧𝖔𝖆𝖉𝖔 𝖖𝖚𝖊 𝖔 𝖆𝖒𝖔𝖗, não é? Falo disso com experiência.
+
+ㅤㅤSem dar tempo para que Amália processasse o peso daquela revelação sobre os acordos de Regina, Mary-Ann deu um passo para trás. Com um giro rápido, empunhou a lâmina onírica e desferiu um corte preciso no ar estagnado da ala médica. O tecido da realidade cedeu com um som de vidro estilhaçado, abrindo uma fenda que se desfez como uma crisálida iridescente, jorrando no ambiente milhares de grãos reluzentes de areia onírica.
+
+ㅤㅤ⸻ 𝕮𝖑𝖎𝖔𝖉𝖍𝖓𝖆 𝖊́ 𝖚𝖒𝖆 𝕬𝖇𝖔𝖒𝖎𝖓𝖆𝖈̧𝖆̃𝖔, 𝖈𝖗𝖎𝖆𝖓𝖈̧𝖆. A mais poderosa entre elas, com poder divino, em nível de Sankto, claro, depois que daquele rapaz Belserion... 𝕲𝖆𝖜𝖆𝖎𝖓, meu sobrinho, a nomeou. Mas, ainda assim, antes de tudo isso, ela precisou de poder, e para isso se fundiu a Destino, irmão de Morpheus... Mas ainda assim, ela não pode conter a autoridade de Morte para sempre, isso está a enlouquecendo... Você é Vernáculo dela por isso, pois assim ela pode se dividir em duas e suportar tanta sobrecarga.
+
+ㅤㅤMontando com destreza em seu cajado de Harpia, a criatura de madeira e magia estalou as articulações, ganhando vida instantaneamente: seus olhos cravejados brilharam e ela soltou um pio agudo e cortante. Mary-Ann lançou um último beijo soprado no ar para Amália e mergulhou de cabeça na fenda, desaparecendo nas brumas infinitas do 𝕸𝖚𝖓𝖉𝖔 𝕺𝖓𝝸́𝖗𝖎𝖈𝖔 enquanto o portal se fechava lentamente atrás de si.
+
+ㅤㅤNo mesmo instante em que a penumbra onírica se dissipou por completo, o som de um suspiro trêmulo e profundo cortou o silêncio do leito ao lado. Cordelia abriu os olhos lentamente, respirando fundo ao despertar para a claridade fria do Mundo Desperto.
